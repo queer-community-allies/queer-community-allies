@@ -1,4 +1,6 @@
-## 🏳️‍🌈 Under Construction
+---
+title: 🏳️‍🌈 Under Construction
+---
 
 ![we'll be your village](resources/rainbow-banner.jpeg)
 
