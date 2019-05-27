@@ -1,0 +1,69 @@
+<!DOCTYPE html>
+<html lang="{{ site.lang | default: "en-US" }}">
+  <head>
+    <meta charset="UTF-8">
+    <meta http-equiv="X-UA-Compatible" content="IE=edge">
+    <meta name="viewport" content="width=device-width, initial-scale=1">
+
+{% seo %}
+    <link rel="stylesheet" href="{{ "/assets/css/style.css?v=" | append: site.github.build_revision | relative_url }}">
+    <!--[if lt IE 9]>
+    <script src="https://cdnjs.cloudflare.com/ajax/libs/html5shiv/3.7.3/html5shiv.min.js"></script>
+    <![endif]-->
+  </head>
+  <body>
+    <div class="wrapper">
+      <header>
+        
+        {% if site.logo %}
+          <a href="{{ "/" | absolute_url }}" alt="{{ site.title | default: site.github.repository_name }}">
+            <img src="{{site.logo | relative_url}}" alt="Logo" />
+          </a>
+        {% endif %}
+        
+        <div class="main-menu">
+          <ul>
+          {% assign sorted_pages = site.pages | sort: "menu-title" %}
+          {% for this_page in sorted_pages %}
+            {% if this_page.menu-title %}
+              {% if this_page.url == page.url %}
+                {% assign this_class = "current" %}
+              {% else %}
+                {% assign this_class = "" %}
+              {% endif %}
+              <li><a href="{{ this_page.url | relative_url }}" alt="{{ this_page.title }}" class="{{ this_class }}">{{ this_page.menu-title }}</a></li>
+            {% endif %}
+          {% endfor %}
+          </ul>
+        </div>
+      </header>
+      <section>
+      
+      {% if page.redirect %}
+        <h1>{{ page.title }}</h1>
+        <p>If you are not automatically redirected, please <a href="{{ page.redirect }}">click here</a>.</p>
+        <script type="text/javascript">
+          window.location.href = "{{ page.redirect }}"
+        </script>
+      {% endif %}
+
+      {{ content }}
+
+      </section>
+      <footer>
+        <p><small>Hosted on GitHub Pages &mdash; Theme by <a href="https://github.com/orderedlist">orderedlist</a></small></p>
+      </footer>
+    </div>
+    <script src="{{ "/assets/js/scale.fix.js" | relative_url }}"></script>
+    {% if site.google_analytics %}
+    <script>
+      (function(i,s,o,g,r,a,m){i['GoogleAnalyticsObject']=r;i[r]=i[r]||function(){
+      (i[r].q=i[r].q||[]).push(arguments)},i[r].l=1*new Date();a=s.createElement(o),
+      m=s.getElementsByTagName(o)[0];a.async=1;a.src=g;m.parentNode.insertBefore(a,m)
+      })(window,document,'script','https://www.google-analytics.com/analytics.js','ga');
+      ga('create', '{{ site.google_analytics }}', 'auto');
+      ga('send', 'pageview');
+    </script>
+    {% endif %}
+  </body>
+</html>
