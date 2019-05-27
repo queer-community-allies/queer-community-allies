@@ -1,6 +1,6 @@
 ---
 title: Donate
-menu-title: Donate via PayPal
+menu-title: Donate
 ---
 
 There are two ways to donate!
