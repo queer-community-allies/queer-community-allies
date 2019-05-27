@@ -22,8 +22,9 @@
         {% endif %}
         
         <div class="main-menu">
-          <ul>
           {% assign sorted_pages = site.pages | sort: "menu-title" %}
+          {% if sorted_pages | count %}
+          <ul>
           {% for this_page in sorted_pages %}
             {% if this_page.menu-title %}
               {% if this_page.url == page.url %}
@@ -35,6 +36,7 @@
             {% endif %}
           {% endfor %}
           </ul>
+          {% endif %}
         </div>
       </header>
       <section>
