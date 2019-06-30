@@ -3,9 +3,9 @@ title: On-Going Projects
 menu-title: On-Going Projects
 ---
 
-![teacher pin design](/files/pin.png)
-
 ## Teacher Pins
+
+![teacher pin design](/files/pin.png)
 
 When we sat down with our first GSA advisor and asked what we could do to help, their first response was “Pins for teachers!” They would love to have a bucket of pins in their classroom that they can make available to teachers in the high school who want to display their ally support. Our goal is to purchase and donate 200 pins by September 1st. 
 
