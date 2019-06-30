@@ -1,7 +1,6 @@
 ---
-layout: page
 title: About
 menu-title: About
 ---
 
-Whatever we want!
+Queer Community Allies is a 501(c)(3)...
