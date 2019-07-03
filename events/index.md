@@ -4,7 +4,7 @@ menu-title: Events
 ---
 ## Kickoff Event & Opening Social! 
 
-Saturday August 10th, 5:00PM to 8:00PM
+Saturday August 17th, 5:00PM to 8:00PM
 
 @ Neptune Park, 453 West 400 North in Saratoga Springs
 
