@@ -14,7 +14,7 @@ Our goals are:
 
 Queer Community Allies started in the spring of 2019 as a plan among friends in a social media group to support the local high school GSA (gay straight alliance). Reeling from news of more local queer teen deaths and more local queer bullying, Christine Hubbard (she/her) and Sarah DeLong (she/her, they/their) wondered how they could rally their friends to donate time and money to the high school club. They wanted to show teens that they had support in the larger community and raise the level of acceptance in their predominantly anti-2LGBTQIA+ cities. After only a few conversations, Christine and Sarah knew these efforts were headed to something bigger, and over the next few weeks they turned these ideas into the paperwork necessary to recognize Queer Community Allies as a non-profit corporation by the State of Utah. Our kickoff social & fundraising event was held in the summer of 2019.  
 
-![Our Directors](files/IMG_3276.jpg)
+(files/IMG_3276.jpg)
 
 > My goal for this organization is to create a safe space for all Queer teens within their own communities. I want to get local resources working together as a united front so that these kids can leave their homes knowing people care and will protect them. I also want to identify where additional resources are needed and provide them. My dream is to have a space where teens can come hang out, do homework, get therapy and just be kids. I want to create that space so that all teens can have normal childhood experiences. We’ll have a pool so trans kids can swim and be themselves SAFELY! That is my dream. ~Christine 
 
