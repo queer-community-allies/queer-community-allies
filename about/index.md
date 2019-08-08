@@ -3,7 +3,7 @@ title: About
 menu-title: About
 ---
 
-Queer Community Allies is a 501(c)(3) nonprofit organization for charitable and educational purposes. We raise money to donate directly to various queer kids’ projects, clubs, and organizations, to purchase supplies to give to these projects and clubs, and to elevate education and acceptance within the local community. We also raise awareness for service opportunities to support these kids, host social gatherings, and provide local resources through their website for queer kids and their families.  
+Queer Community Allies is a 501(c)(3) nonprofit organization for charitable and educational purposes. We raise money to donate directly to various queer kids’ projects, clubs, and organizations, to purchase supplies to give to these projects and clubs, and to elevate education and acceptance within the local community. We also raise awareness for service opportunities to support these kids, host social gatherings, and provide local resources through our website for queer kids and their families.  
 
 Our goals are: 
 
