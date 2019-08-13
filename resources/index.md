@@ -11,4 +11,6 @@ Online Glossaries of Queer Terms
 - [Human Rights Campaign Glossary of Terms](https://www.hrc.org/resources/glossary-of-terms?fbclid=IwAR2jzC52LqaE_-fgEEMo8hHqk1uTAbcisEvoUTWThirI5vrTUnADhy9ROaQ) 
 - [PFLAG National Glossary of Terms](https://pflag.org/glossary?fbclid=IwAR35pBB0uTPRBIRJiqZN3XIaqHkvBITuZp8_SeCIubZTYzPqGUdxIRL2w3U)
 
+Human Rights Campaign (HRC) report, [Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+
 Stay tuned for more information! 
