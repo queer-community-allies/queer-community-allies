@@ -11,6 +11,19 @@ Online Glossaries of Queer Terms
 - [Human Rights Campaign Glossary of Terms](https://www.hrc.org/resources/glossary-of-terms?fbclid=IwAR2jzC52LqaE_-fgEEMo8hHqk1uTAbcisEvoUTWThirI5vrTUnADhy9ROaQ) 
 - [PFLAG National Glossary of Terms](https://pflag.org/glossary?fbclid=IwAR35pBB0uTPRBIRJiqZN3XIaqHkvBITuZp8_SeCIubZTYzPqGUdxIRL2w3U)
 
-Human Rights Campaign (HRC) report, [Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+Local Support Groups
+
+- [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county) 
+- [Mama Dragons](https://mamadragons.org) 
+- [Dragon Dads](https://www.facebook.com/DragonDads/)
+
+
+Online Resources
+
+- [Human Rights Campaign (HRC) report, Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+- [Gender Spectrum resources on Parenting & Family, Teens, and more](https://www.genderspectrum.org/resources/) 
+- [Resources for allies from Straight for Equality](http://www.straightforequality.org/allyspectrum)
+
+
 
 Stay tuned for more information! 
