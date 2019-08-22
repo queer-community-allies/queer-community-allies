@@ -3,7 +3,7 @@ title: Events
 menu-title: Events
 ---
 
-Provo Pride Festival: The Riot Continues
+## Provo Pride Festival: The Riot Continues
 
 Saturday September 14th @ 10am to 6pm
 
