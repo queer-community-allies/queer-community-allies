@@ -20,10 +20,9 @@ Local Support Groups
 
 Online Classes, Packets, Reports & Articles
 
-- [Human Rights Campaign (HRC) report, Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
-- [Gender Spectrum packets, Parenting & Family, Teens, and other topics](https://www.genderspectrum.org/resources/) 
-- [Straight for Equality, resources for allies](http://www.straightforequality.org/allyspectrum)
-
+- [Gender Spectrum ~ Parenting & Family, Teens, Education, Medical, Mental Health, Legal, Social Services, Faith](https://www.genderspectrum.org/resources/) 
+- [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
+- [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
 
 
 Stay tuned for more information! 
