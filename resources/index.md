@@ -39,4 +39,4 @@ Online Classes, Packets, Reports & Articles
 - [Gender Spectrum ~ Schools in Transition: A Guide for Supporting Transgender Students in K-12 Schools](https://www.genderspectrum.org/staging/wp-content/uploads/2015/08/Schools-in-Transition-2015.pdf)
 
 
-Do you know of some local affirming service providers, educators, or spaces that are queer & trans affirming? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? LET US KNOW via our contact page (see left)! We'll check them out and add them here! 
+Do you know of some local queer & trans affirming service providers, educators, or spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? ... LET US KNOW via our contact page (see left)! We'll check them out and add them here! 
