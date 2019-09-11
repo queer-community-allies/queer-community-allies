@@ -14,10 +14,11 @@ Online Glossaries of Queer Terms
 Local Support Groups
 
 - [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county) 
+- [Rainbow Mutual](http://www.rainbowmutual.org)
 - [Mama Dragons](https://mamadragons.org) 
 - [Dragon Dads](https://www.facebook.com/DragonDads/)
 
-We love GSAs! Here are some helpful resources for prospective and current clubs...
+We love GSAs! Here are some helpful resources for prospective & current clubs...
 
 - [GSA Network What is a GSA club?](https://gsanetwork.org/what-is-a-gsa/) 
 - [ACLU How to Start a Gay-Straight Alliance (GSA)](https://www.aclu.org/other/how-start-gay-straight-alliance-gsa) 
@@ -25,13 +26,15 @@ We love GSAs! Here are some helpful resources for prospective and current clubs.
 - [GSA Network Tips for keeping your GSA and its members safe](https://gsanetwork.org/resources/gsa-safety-resource/) 
 - [GSA Network Creating inclusive GSAs](https://gsanetwork.org/resources/creating-inclusive-gsas/)
 - [GSA Network How to get more members & allies](https://gsanetwork.org/resources/how-to-get-more-members-allies/)
-- 
+- [GSA Network Dealing with Hostility & Opposition](https://gsanetwork.org/resources/dealing-with-hostility-opposition/)
+- [GSA Network Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
 Online Classes, Packets, Reports & Articles
 
 - [Gender Spectrum ~ Parenting & Family, Teens, Education, Medical, Mental Health, Legal, Social Services, Faith](https://www.genderspectrum.org/resources/) 
 - [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+- [Gender Spectrum ~ Schools in Transition: A Guide for Supporting Transgender Students in K-12 Schools](https://www.genderspectrum.org/staging/wp-content/uploads/2015/08/Schools-in-Transition-2015.pdf)
 
 
 Stay tuned for more information! 
