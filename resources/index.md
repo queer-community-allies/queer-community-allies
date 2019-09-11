@@ -22,16 +22,20 @@ Local Support Groups
 
 Local Therapists
 
-- [The LGBTQ-Affirmative Psychotherapist Guild of Utah directory of therapists, searchable by location/services/specialties/insurance/languages](http://lgbtqtherapists.com/directory.html)
+- [The LGBTQ-Affirmative Psychotherapist Guild of Utah – directory searchable by location, services, specialties, insurance, and languages](http://lgbtqtherapists.com/directory.html)
 
 We love GSAs! Here are some helpful resources for prospective & current clubs...
 
 - [GSA Network ~ What is a GSA club?](https://gsanetwork.org/what-is-a-gsa/) 
 - [ACLU ~ How to Start a Gay-Straight Alliance (GSA)](https://www.aclu.org/other/how-start-gay-straight-alliance-gsa) 
 - [Teaching Tolerance ~ 10 Tips for Starting a GSA](https://www.tolerance.org/magazine/10-tips-for-starting-a-gsa)
+- [GLSEN ~ How to Find a Club Advisor](https://www.glsen.org/gsa/findanadvisor)
+- [GLSEN ~ Educators! Support Your GSA!](https://www.glsen.org/article/educators-support-your-gsa)
 - [GSA Network ~ Tips for keeping your GSA and its members safe](https://gsanetwork.org/resources/gsa-safety-resource/) 
 - [GSA Network ~ Creating inclusive GSAs](https://gsanetwork.org/resources/creating-inclusive-gsas/)
+- [GLSEN ~ Make Your GSA Transgender and Gender Nonconforming Inclusive](https://www.glsen.org/GSA/making-your-club-inclusive-transgender-and-gnc-students)
 - [GSA Network ~ How to get more members & allies](https://gsanetwork.org/resources/how-to-get-more-members-allies/)
+- [GLSEN ~ Know Your Rights](https://www.glsen.org/knowyourrights)
 - [GSA Network ~ Dealing with Hostility & Opposition](https://gsanetwork.org/resources/dealing-with-hostility-opposition/)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
