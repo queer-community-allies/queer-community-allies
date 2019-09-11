@@ -17,6 +17,15 @@ Local Support Groups
 - [Mama Dragons](https://mamadragons.org) 
 - [Dragon Dads](https://www.facebook.com/DragonDads/)
 
+We love GSAs! Here are some helpful resources for prospective and current clubs...
+
+- [GSA Network What is a GSA club?](https://gsanetwork.org/what-is-a-gsa/) 
+- [ACLU How to Start a Gay-Straight Alliance (GSA)](https://www.aclu.org/other/how-start-gay-straight-alliance-gsa) 
+- [Teaching Tolerance 10 Tips for Starting a GSA](https://www.tolerance.org/magazine/10-tips-for-starting-a-gsa)
+- [GSA Network Tips for keeping your GSA and its members safe](https://gsanetwork.org/resources/gsa-safety-resource/) 
+- [GSA Network Creating inclusive GSAs](https://gsanetwork.org/resources/creating-inclusive-gsas/)
+- [GSA Network How to get more members & allies](https://gsanetwork.org/resources/how-to-get-more-members-allies/)
+- 
 
 Online Classes, Packets, Reports & Articles
 
