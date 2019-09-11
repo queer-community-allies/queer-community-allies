@@ -4,6 +4,8 @@ menu-title: Local Resources
 ---
 ## 🏳️‍🌈 Under Construction
 
+Stay tuned for more information! 
+
 Online Glossaries of Queer Terms
 
 - [UC Davis LGBTQIA Resource Center Glossary](https://lgbtqia.ucdavis.edu/educated/glossary?fbclid=IwAR2oeHVRlGOWoJ_CiwzkxRTjaeR1GZJcZEmq_PgvSb9EAywPr4-0W-CDD-0)
@@ -37,4 +39,4 @@ Online Classes, Packets, Reports & Articles
 - [Gender Spectrum ~ Schools in Transition: A Guide for Supporting Transgender Students in K-12 Schools](https://www.genderspectrum.org/staging/wp-content/uploads/2015/08/Schools-in-Transition-2015.pdf)
 
 
-Stay tuned for more information! 
+Do you know of some local affirming service providers, educators, or spaces that are queer & trans affirming? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? LET US KNOW via our contact page (see left)! We'll check them out and add them here! 
