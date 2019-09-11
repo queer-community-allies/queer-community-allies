@@ -53,4 +53,4 @@ Online Classes, Packets, Reports & Articles
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
 
 
-Do you know of some local queer & trans affirming service providers, educators, or spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? ... LET US KNOW via our contact page (see left)! We'll check them out and add them here! 
+Do you know of some local queer & trans affirming service providers, educators, or spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? ... LET US KNOW via our contact page (sidebar menu)! We'll check them out and add them here! 
