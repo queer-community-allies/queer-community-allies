@@ -3,15 +3,7 @@ title: Events
 menu-title: Events
 ---
 
-## Provo Pride Festival: The Riot Continues
+## Check back soon!
 
-Saturday September 14th @ 10am to 6pm
-
-Provo Historic Courthouse (Utah County Courthouse) 
-151 South University Avenue in Provo
-
-Sign up to volunteer here: [http://www.provopride.org/volunteer/](http://www.provopride.org/volunteer/)
-
-Featuring activities, vendors, entertainment, and the PFLAG Kid Zone.  Come on out and support the local queer community! 
-Queer Community Allies directors Christine and Sarah will be floating around the event. 
+We hosted our opening community social in August 2019, and we attended Provo Pride in September 2019. Check back soon for more socials and events! 
 
