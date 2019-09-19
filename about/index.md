@@ -3,14 +3,7 @@ title: About
 menu-title: About
 ---
 
-Queer Community Allies is a 501(c)(3) nonprofit organization for charitable and educational purposes. We raise money to donate directly to various queer kids’ projects, clubs, and organizations, to purchase supplies to give to these projects and clubs, and to elevate education and acceptance within the local community. We also raise awareness for service opportunities to support these kids, host social gatherings, and provide local resources through our website for queer kids and their families.  
-
-Our goals are: 
-
-- To facilitate a support network for queer kids within our local area, specifically by providing support for GSA (Gay/Straight Alliance) clubs in local high schools. 
-- To facilitate the creation of social connections in a safe space for queer kids and their allies. 
-- To provide therapeutic support and interventions for queer kids and their families in a safe and affirming way.
-- To provide education for parents and allies of queer children. 
+Welcome to Queer Community Allies! We are a unique 501(c)(3) organization that serves queer teens in collaboration with the local community. Nestled between Salt Lake City and Provo in north Utah County, we find groups for and led by queer kids and provide tangible and emotional support, often inviting local businesses and local allies to be involved. We raise money to donate directly to various queer kids’ projects, clubs, and organizations and purchase supplies to give to these projects and clubs. We use our relationships, connections, and funds to provide social events, share resources to educate the local populace on queer terminology and queer life, and be present at local community events to raise awareness and acceptance of our community's queer young people. We also share local service opportunities and provide local resources through our website for queer kids and their families.  
 
 Queer Community Allies started in the spring of 2019 as a plan among friends in a social media group to support the local high school GSA (gay straight alliance). Reeling from news of more local queer teen deaths and more local queer bullying, Christine Hubbard (she/her) and Sarah DeLong (she/her, they/their) wondered how they could rally their friends to donate time and money to the high school club. They wanted to show teens that they had support in the larger community and raise the level of acceptance in their predominantly anti-2LGBTQIA+ cities. After only a few conversations, Christine and Sarah knew these efforts were headed to something bigger, and over the next few weeks they turned these ideas into the paperwork necessary to recognize Queer Community Allies as a non-profit corporation by the State of Utah. Our kickoff social & fundraising event was held in the summer of 2019.  
 
@@ -20,3 +13,9 @@ Queer Community Allies started in the spring of 2019 as a plan among friends in 
 
 > My goal for the next few years is to build up a local network for and with local teens that helps them feel loved, involved, connected, and confident. Hopefully these efforts will, in turn, lower suicidal thoughts, attempts, and completions among all teen demographics in this area as well as alleviate queer teen dislocation, homelessness, and peer/family rejection. There is so much to be done, and I'm excited to WORK! ~Sarah 
 
+Our goals are: 
+
+- To facilitate a support network for queer kids within our local area, specifically by providing support for GSA (Gay/Straight Alliance) clubs in local high schools. 
+- To facilitate the creation of social connections in a safe space for queer kids and their allies. 
+- To provide therapeutic support and interventions for queer kids and their families in a safe and affirming way.
+- To provide education for parents and allies of queer children. 
