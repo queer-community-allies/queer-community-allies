@@ -10,7 +10,7 @@ There are two ways to donate!
 
 
 
-A big thank you to all our corporate sponsors
+## A big thank you to local businesses that support Queer Community Allies
 
 - Backyard Bookkeeper
 - Shirtbatter
