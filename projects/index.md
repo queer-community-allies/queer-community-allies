@@ -3,6 +3,9 @@ title: On-Going Projects
 menu-title: On-Going Projects
 ---
 
+## Scrapbook Supplies Drive
+We've had a request from GSA teens for scrapbook supplies! They would like to use them to create holiday cards to sell to raise money for their club. If you have supplies you'd like to donate, we will have local drop-off points. More info coming soon! 
+
 ## Support GSAs 
 
 Teens are amazing! We partner with local GSAs (gay straight alliances) to provide tangible and emotional support to club members and advisors. Reach out through our Contact page if you want to get involved!
