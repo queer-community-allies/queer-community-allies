@@ -18,6 +18,10 @@ Local Therapists
 
 - [The LGBTQ-Affirmative Psychotherapist Guild of Utah – directory searchable by location, services, specialties, insurance, and languages](http://lgbtqtherapists.com/directory.html)
 
+
+Do you know of some local queer & trans affirming service providers, educators, or spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? ... LET US KNOW via our contact page (sidebar menu)! We'll check them out and add them here! 
+
+
 Online Glossaries of Queer Terms
 
 - [UC Davis ~ LGBTQIA Resource Center Glossary](https://lgbtqia.ucdavis.edu/educated/glossary?fbclid=IwAR2oeHVRlGOWoJ_CiwzkxRTjaeR1GZJcZEmq_PgvSb9EAywPr4-0W-CDD-0)
@@ -53,5 +57,3 @@ Online Classes, Packets, Reports & Articles
 - [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
 
-
-Do you know of some local queer & trans affirming service providers, educators, or spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? ... LET US KNOW via our contact page (sidebar menu)! We'll check them out and add them here! 
