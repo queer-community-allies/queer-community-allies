@@ -8,13 +8,13 @@ There are two ways to donate!
 - [Donate via PayPal](/donate/paypal)
 - [Donate via Venmo](/donate/venmo)
 
-Thank you to all our corporate sponsors!
 
-Backyard Bookkeeper
 
-Shirtbatter
+A big thank you to all our corporate sponsors
 
-American Name Services
+- Backyard Bookkeeper
+- Shirtbatter
+- American Name Services
 
 
 Our EIN is `84-2519026`
