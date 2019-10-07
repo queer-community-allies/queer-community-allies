@@ -5,11 +5,16 @@ menu-title: Events
 
 ## Fall Break Bowling
 Jack & Jill Lanes Lehi 113 S 600 E
+
 Friday October 18th 1pm-3pm
+
 Free shoes & pizza for the first 20 teens! 
-Look for the lanes with balloons 🎈
+
+Look for the lanes with balloons 🎈 
+
 Bring socks!
-Families & allies welcome~come rent a lane, rent some shoes, hang out & support! We've reserved a couple lanes for our teens, but please, please come and join!!
+
+Families & allies welcome ~ come rent a lane, rent some shoes, hang out & support! We've reserved a couple lanes for our teens, but please, please come and join!!
 
 ## Roller Derby Monster Bash!
 
