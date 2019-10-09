@@ -4,7 +4,7 @@ menu-title: On-Going Projects
 ---
 
 ## Scrapbook Supplies Drive
-We've had a request from GSA teens for scrapbook and craft supplies! They would like to use them to create holiday cards to fundraise money for their club. If you have supplies you'd like to donate, we will have local drop-off points. More info coming soon! 
+We've had a request from GSA teens for scrapbook and craft supplies! They would like to use them to create holiday cards to fundraise money for their club. If you have supplies you'd like to donate, YogaVega is our drop-off point! Swing by their studio anytime between October 9th and October 23rd on their open dates between 8AM & 12PM or 6PM & 9PM. They are giving each donor a free class pass! Ask at their front desk. They are located at 1306 N Redwood Rd Saratoga Springs.  
 
 ## Support GSAs 
 
