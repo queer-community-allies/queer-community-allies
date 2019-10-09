@@ -8,6 +8,7 @@ There are two ways to donate!
 - [Donate via PayPal](/donate/paypal)
 - [Donate via Venmo](/donate/venmo)
 
+Our EIN is `84-2519026`
 
 
 ## A big thank you to local businesses that support Queer Community Allies
@@ -15,6 +16,5 @@ There are two ways to donate!
 - Backyard Bookkeeper
 - Shirtbatter
 - American Name Services
+- Yoga Vega
 
-
-Our EIN is `84-2519026`
