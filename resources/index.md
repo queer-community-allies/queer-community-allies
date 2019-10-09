@@ -9,13 +9,14 @@ Do you know of some local queer & trans affirming service providers, educators, 
 Utah County Support Groups & Organizations
 
 - [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county) 
-- [Gender Bands (Provo)](https://www.genderbands.org)
-- [Rainbow Mutual (Utah County)](http://www.rainbowmutual.org)
-- [Queer Meals (Provo)](http://queermeals.com) 
+- [Rainbow Mutual](http://www.rainbowmutual.org)
 - [Mama Dragons](https://mamadragons.org) 
 - [Dragon Dads](https://www.facebook.com/DragonDads/)
-- [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi)
+- [Gender Bands (Provo)](https://www.genderbands.org)
+- [Queer Meals (Provo)](http://queermeals.com) 
 - [Encircle (Provo)](www.EncircleTogether.org)
+- [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi)
+- [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter)
 
 Local Therapists
 
@@ -59,8 +60,7 @@ Online Classes, Packets, Reports & Articles
 
 Additional Organizations (Salt Lake City)
 
-- [Encircle (Salt Lake City)](www.EncircleTogether.org)
-- [Provo Pride](www.provopride.org)
+- [Encircle](www.EncircleTogether.org)
 - [Equality Utah](www.equalityutah.org)
 - [HRC Utah](www.hrcutah.org)
-- [Utah Pride Center (Salt Lake City](https://utahpridecenter.org)
+- [Utah Pride Center](https://utahpridecenter.org)
