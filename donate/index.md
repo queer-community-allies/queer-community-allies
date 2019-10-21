@@ -16,5 +16,5 @@ Our EIN is `84-2519026`
 - Backyard Bookkeeper
 - Shirtbatter
 - American Name Services
-- Yoga Vega
+- YogaVega
 
