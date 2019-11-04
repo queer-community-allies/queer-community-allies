@@ -4,6 +4,8 @@ title: Welcome
  
 ## What's Happening in November 
 
+- We support Project Rainbow! Purchase a flag to be put in your yard for Transgender Day of Remembrance and/or sign up to help make, stake, and remove flags. [https://www.projectrainbowutah.org/sign-up](https://www.projectrainbowutah.org/sign-up)
+
 - Do you know of some local queer & trans affirming service providers, educators, or spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? … LET US KNOW via our contact page! We’ll check them out and add them to our resource page!
 
 - Support GSAs ~ 
