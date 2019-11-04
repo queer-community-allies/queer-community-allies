@@ -3,9 +3,6 @@ title: On-Going Projects
 menu-title: On-Going Projects
 ---
 
-## Scrapbook Supplies Drive
-We've had a request from GSA teens for scrapbook and craft supplies! They would like to use them to create holiday cards to fundraise money for their club. If you have supplies you'd like to donate, YogaVega is our drop-off point! Swing by their studio anytime between October 9th and October 23rd on their open dates between 8AM & 12PM or 6PM & 9PM. They are giving each donor a free class pass! Ask at their front desk. They are located at 1306 N Redwood Rd Saratoga Springs.  
-
 ## Support GSAs 
 
 Teens are amazing! We partner with local GSAs (gay straight alliances) to provide tangible and emotional support to club members and advisors. Reach out through our Contact page if you want to get involved!
@@ -16,4 +13,4 @@ Advisors and teachers love having pins in their classroom that they can give to 
 
 ## Community Swag
 
-Queer Community Allies tees are available for $10 each at our community events. We hope to expand our swag collection to include window stickers, water bottles, and more in the near future. 
+We hope to expand our Queer Community Allies swag collection soon to include window stickers, water bottles, and more. If you know of a business that wants to partner with us, let us know via our Contact page! 
