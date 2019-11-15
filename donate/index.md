@@ -12,7 +12,7 @@ There are two ways to donate!
 - [Donate via PayPal](/donate/paypal)
 - [Donate via Venmo](/donate/venmo)
 
-![holiday donation drawing](files/holiday%20drawing%20small.jpg)
+![holiday donation drawing](files/holidaydrawingsmall.jpg)
 
 Our EIN is `84-2519026`
 
