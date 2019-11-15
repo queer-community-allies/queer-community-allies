@@ -19,8 +19,8 @@ Our EIN is `84-2519026`
 
 ## A big thank you to local businesses that support Queer Community Allies
 
+- American Name Services
 - Backyard Bookkeeper
 - Shirtbatter
-- American Name Services
 - YogaVega
 
