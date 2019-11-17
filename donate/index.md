@@ -9,7 +9,7 @@ From Monday Nov. 18 to Sun. Dec. 29, 2019, all individuals who donate $10 to Que
 
 Click one of the linkes below to donate!
 
-- [Donorbox]<a target="_blank" href="https://donorbox.org/queer-community-allies-donations"><img src="https://d1iczxrky3cnb2.cloudfront.net/button-medium-blue.png" /></a>
+<a target="_blank" href="https://donorbox.org/queer-community-allies-donations"><img src="https://d1iczxrky3cnb2.cloudfront.net/button-medium-blue.png" /></a>
 - [Donate via PayPal](/donate/paypal)
 - [Donate via Venmo](/donate/venmo)
 
