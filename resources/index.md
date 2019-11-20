@@ -8,15 +8,14 @@ Do you know of some local queer & trans affirming service providers, educators, 
 
 Utah County Support Groups & Organizations
 
-- [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county) 
-- [Rainbow Mutual](http://www.rainbowmutual.org)
-- [Mama Dragons](https://mamadragons.org) 
-- [Dragon Dads](https://www.facebook.com/DragonDads/)
-- [Gender Bands (Provo)](https://www.genderbands.org)
-- [Queer Meals (Provo)](http://queermeals.com) 
-- [Encircle (Provo)](www.EncircleTogether.org)
-- [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi)
-- [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter)
+- [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties, sponsored by the Pride Center and Encircle
+- [Mama Dragons](https://mamadragons.org) support group for moms with LGBTQIA+ youth
+- [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads with LGBTQIA+ youth
+- [Gender Bands (Provo)](https://www.genderbands.org) funding for trans surgeries and weekly meetups for trans teens and adults
+- [Queer Meals (Provo)](http://queermeals.com) a safe space for homeless and displaced queer teens and young adults
+- [Encircle (Provo)](www.EncircleTogether.org) center and therapy with events for LGBTQ teens and families
+- [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
+- [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
 
 Local Therapists
 
