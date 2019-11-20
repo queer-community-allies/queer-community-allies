@@ -68,3 +68,5 @@ Additional Organizations (Salt Lake City)
 
 
 ![Image source: San Francisco State University Family Acceptance Project](/files/Acceptance_Poster_website.jpg)
+
+Image source: San Francisco State University [Family Acceptance Project](https://familyproject.sfsu.edu)
