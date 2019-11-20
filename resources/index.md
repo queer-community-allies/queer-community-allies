@@ -64,3 +64,7 @@ Additional Organizations (Salt Lake City)
 - [Equality Utah](www.equalityutah.org)
 - [HRC Utah](www.hrcutah.org)
 - [Utah Pride Center](https://utahpridecenter.org)
+
+
+
+![Image source: San Francisco State University Family Acceptance Project](files/Acceptance_Poster_website.jpg)
