@@ -4,7 +4,7 @@ title: Welcome
  
 ## What's Happening in November 
 
-- Transgender Awareness Week 🏳️‍⚧ [GLAAD Trans Week](https://www.glaad.org/transweek)
+- Transgender Awareness Week [GLAAD Trans Week](https://www.glaad.org/transweek)
 
 - Queer Community Allies has been reaching out to local businesses asking for gift cards. From Monday Nov. 18 to Sun. Dec. 29, 2019, all individuals who donate $10 to Queer Community Allies will be entered into a holiday drawing; individuals may be entered as many times as they wish. ($100 = 10 entries!) All donated gift cards will be bundled as the prize for our holiday drawing. The drawing will be on December 30. Check out our Donate page! 
 
