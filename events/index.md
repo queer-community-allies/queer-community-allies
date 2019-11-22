@@ -13,9 +13,8 @@ Check out these events being sponsored by our friends!
 
 - Encircle Summit 2019: An LGBTQ+ Summit for Everyone
 
-Saturday, December 7, 2019
-Lehi
-Reserve seats, buy tickets, and read more at [https://encirclesummit.org](https://encirclesummit.org) 
+Saturday, December 7, 2019. 
+Lehi. Reserve seats, buy tickets, and read more at [https://encirclesummit.org](https://encirclesummit.org). 
 
 - MasQueerade 2019: Peace, Love, & Boogie
 
