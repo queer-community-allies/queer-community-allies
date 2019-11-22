@@ -20,10 +20,10 @@ Reserve seats, buy tickets, and read more at [https://encirclesummit.org](https:
 - MasQueerade 2019: Peace, Love, & Boogie
 
 For youth ages 14-20. Please bring a school ID or driver's license. 
-Saturday, December 14, 2019 at 8 PM to 11 PM
+Saturday, December 14, 2019 at 8 PM to 11 PM. 
 Salt Lake City Public Library
-210 E 400 S, Salt Lake City
-Hosted by Utah Pride's Youth & Family Programs and Utah Pride Center
-Tickets at utahpridecenter.secure.force.com
+210 E 400 S, Salt Lake City. 
+Hosted by Utah Pride's Youth & Family Programs and Utah Pride Center. 
+Tickets at [utahpridecenter.secure.force.com]([utahpridecenter.secure.force.com]). 
 They will host a special MasQueerade Parent & Caregiver Potluck at the same time across the street. 
-They are looking for volunteers to help out on the night of the dance. Please visit [https://utahpridecenter.org/volunteering-at-the-utah-pride-center](https://utahpridecenter.org/volunteering-at-the-utah-pride-center)
+They are looking for volunteers to help out on the night of the dance; if you are interested, visit [https://utahpridecenter.org/volunteering-at-the-utah-pride-center](https://utahpridecenter.org/volunteering-at-the-utah-pride-center). 
