@@ -20,7 +20,7 @@ Utah County Support Groups & Organizations
 Local Therapists
 
 - [The LGBTQ-Affirmative Psychotherapist Guild of Utah – directory searchable by location, services, specialties, insurance, and languages](http://lgbtqtherapists.com/directory.html)
-
+- [Flourish Therapy (Provo)](https://flourishtherapy.org)
 
 Online Glossaries of Queer Terms
 
