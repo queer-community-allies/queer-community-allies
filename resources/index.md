@@ -12,7 +12,7 @@ Utah County Support Groups & Organizations
 - [Mama Dragons](https://mamadragons.org) support group for moms with LGBTQIA+ youth
 - [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads with LGBTQIA+ youth
 - [Gender Bands (Provo)](https://www.genderbands.org) funding for trans surgeries and weekly meetups for trans teens and adults
-- [Queer Meals (Provo)](http://queermeals.com) a safe space for homeless and displaced queer teens and young adults
+- [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
 - [Encircle (Provo)](www.EncircleTogether.org) center and therapy with events for LGBTQ teens and families
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
 - [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
@@ -64,7 +64,10 @@ Additional Organizations (Salt Lake City)
 - [Equality Utah](www.equalityutah.org)
 - [HRC Utah](www.hrcutah.org)
 - [Utah Pride Center](https://utahpridecenter.org)
-
+- [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
+- [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
+- [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
+- 
 
 
 ![Image source: San Francisco State University Family Acceptance Project](/files/Acceptance_Poster_website.jpg)
