@@ -45,6 +45,9 @@ We love GSAs! Here are some helpful resources for prospective & current clubs...
 - [GSA Network ~ Dealing with Hostility & Opposition](https://gsanetwork.org/resources/dealing-with-hostility-opposition/)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
+Scholarships
+ - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
+
 Online Classes, Packets, Reports & Articles
 
 - [The Trevor Project](https://www.thetrevorproject.org)
