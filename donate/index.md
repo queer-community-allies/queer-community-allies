@@ -23,6 +23,7 @@ Our EIN is `84-2519026`
 - American Name Services
 - Backyard Bookkeeper
 - Beans & Brews 
+- Beth Blair @ Salon Beleza 
 - Coffee Creations 
 - Shirtbatter
 - YogaVega
