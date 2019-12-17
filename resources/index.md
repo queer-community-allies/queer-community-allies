@@ -11,7 +11,7 @@ Utah County Support Groups & Organizations
 - [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties, sponsored by the Pride Center and Encircle
 - [Mama Dragons](https://mamadragons.org) support group for moms with LGBTQIA+ youth
 - [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads with LGBTQIA+ youth
-- [Gender Bands (Provo)](https://www.genderbands.org) funding for trans surgeries and weekly meetups for trans teens and adults
+- [Gender Bands (Orem)](https://www.genderbands.org) funding for trans surgeries and weekly meetups for trans teens and adults
 - [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
 - [Encircle (Provo)](www.EncircleTogether.org) center and therapy with events for LGBTQ teens and families
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
