@@ -7,13 +7,21 @@ title: Welcome
 ![holiday self care](files/holiday-self-care.jpg)
 
 Utah County Support Groups & Organizations
+
 ~Rainbow Mutual, events for teens, held throughout Utah and Salt Lake counties
+
 ~Mama Dragons, support group for moms with LGBTQIA+ youth
+
 ~Dragon Dads, support group for dads with LGBTQIA+ youth
+
 ~Gender Bands (Provo), funding for trans surgeries and weekly meetups for trans teens and adults
+
 ~Queer Meals (Provo), family meals in a safe space for queer teens and young adults
+
 ~Encircle (Provo), center and therapy with events for LGBTQ teens and families
+
 ~Project Rainbow, flags for special LGBT days of the year
+
 ~GLSEN Northern Utah, supports inclusive education and schools
 
 - From Monday Nov. 18 to Sun. Dec. 29, 2019, all individuals who donate $10 to Queer Community Allies will be entered into a holiday drawing; individuals may be entered as many times as they wish. ($100 = 10 entries!) All donated gift cards will be bundled as the prize for our holiday drawing. The drawing will be on December 30. Check out our Donate page! 
