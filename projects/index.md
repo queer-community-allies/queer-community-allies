@@ -5,7 +5,7 @@ menu-title: On-Going Projects
 
 ## Support GSAs 
 
-Teens are amazing! We partner with local GSAs (gay straight alliances) to provide tangible and emotional support to club members and advisors. Reach out through our Contact page if you want to get involved!
+Teens are amazing! We partner with local GSAs (gay straight alliances/gender sexuality alliances...it's a social club for queer teens on campus!) to provide tangible and emotional support to club members and advisors. Reach out through our Contact page if you want to get involved!
 
 ## Educator Pins
 
