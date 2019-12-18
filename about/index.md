@@ -20,6 +20,8 @@ Our Board
 
 We're looking for 2020-2021 board members! Contact us if you want to get involved! 
 
+![First Quarter Board Meeting Notes](/files/Qtr1boardmtnnotes.pdf)
+
 ![our directors](/files/IMG_3276.jpg)
 
 > My goal for this organization is to create a safe space for all Queer teens within their own communities. I want to get local resources working together as a united front so that these kids can leave their homes knowing people care and will protect them. I also want to identify where additional resources are needed and provide them. My dream is to have a space where teens can come hang out, do homework, get therapy and just be kids. I want to create that space so that all teens can have normal childhood experiences. We’ll have a pool so trans kids can swim and be themselves SAFELY! That is my dream. ~Christine 
