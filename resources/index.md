@@ -60,6 +60,7 @@ Online Classes, Packets, Reports & Articles
 - [Gender Spectrum ~ Faith](https://www.genderspectrum.org/resources/faith-2/)
 - [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+- [History is Gay podcast ~ Two queer nerds share their love for the past, hijinks, and all things gay, sharing stories of those of us in the unexplored corners of history who have always been there.](https://www.historyisgaypodcast.com)
 
 Additional Organizations (Salt Lake City)
 
