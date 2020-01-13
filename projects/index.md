@@ -13,4 +13,4 @@ Advisors and teachers love having pins in their classroom that they can give to 
 
 ## Community Swag
 
-We hope to expand our Queer Community Allies swag collection soon to include window stickers, water bottles, and more. If you know of a business that wants to partner with us, let us know via our Contact page! 
+Check out our Queer Community Allies swag collection! [QueerCommunityAllies at Zazzle.com](https://www.zazzle.com/store/queercommunityallies)
