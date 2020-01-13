@@ -11,3 +11,4 @@ title: Welcome
 
 ![we'll be your village](files/rainbow-banner.jpeg)
 
+Logo design by Larissa Norman
