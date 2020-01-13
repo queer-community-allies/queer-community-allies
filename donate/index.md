@@ -10,6 +10,8 @@ Click one of the linkes below to donate!
 - [Donate via Venmo](/donate/venmo)
 
 
+Or shop our storefront [QueerCommunityAllies at Zazzle.com](https://www.zazzle.com/store/queercommunityallies).
+
 Our EIN is `84-2519026`
 
 
