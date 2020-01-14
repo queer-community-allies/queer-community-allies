@@ -9,7 +9,7 @@ Teens are amazing! We partner with local GSAs (gay straight alliances/gender sex
 
 ## Educator Pins
 
-Advisors and teachers love having pins in their classroom that they can give to those in the high school who want to display their ally support. We purchase batches of pins to donate, as we receive requests from safe allies on behalf of their spaces. Every $2.50 that you donate (check out our Donate page) gets a pin to a teacher at a high school or other safe space. 🏳️‍🌈
+Advisors and teachers love having pins in their classroom that they can give to those in the high school who want to display their ally support. We purchase batches of pins to donate, as we receive requests from safe allies on behalf of their spaces. Every $2.50 that you donate gets a pin to a teacher at a high school or other safe space. 🏳️‍🌈
 
 ## Community Swag
 
