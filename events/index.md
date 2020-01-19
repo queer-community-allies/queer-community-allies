@@ -16,7 +16,7 @@ Check out these events being sponsored by our friends!
 Coming up: 
 - Our 1st Birthday! 7/20 @ 6-10pm Picnic & Pool Party at the Lehi Legacy Center. More info coming soon! 
 
-![pool party](files/flyersummerpicnicmini.jpg)
+![pool party](/files/flyersummerpicnicmini.jpg)
 
 Check out our social media pages for photos from fun past events! (Kickoff picnic, chilling at Provo Pride, fall break bowling, hanging out at roller derby...)
 
