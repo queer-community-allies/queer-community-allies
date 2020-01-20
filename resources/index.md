@@ -66,7 +66,7 @@ Online Classes, Packets, Reports & Articles
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
 - [History is Gay podcast ~ Two queer nerds share their love for the past](https://www.historyisgaypodcast.com)
 
-Additional Organizations (Salt Lake City/Salt Lake County)
+Additional Organizations & Resources (Salt Lake City/Salt Lake County)
 
 - [Encircle](www.EncircleTogether.org)
 - [Equality Utah](www.equalityutah.org)
@@ -74,6 +74,7 @@ Additional Organizations (Salt Lake City/Salt Lake County)
 - [Utah Pride Center](https://utahpridecenter.org)
 - [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
 - [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
+- [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
 - [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
 
 
