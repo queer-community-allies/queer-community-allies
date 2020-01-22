@@ -14,9 +14,12 @@ Check out these events being sponsored by our friends!
 
 
 Coming up: 
+
+- Sweet Art! 2/19 @ 7-8pm. Join us for an art walk and private tour at the Springville Art Museum through their 48th Annual Utah All-State High School exhibit. Cookies will be provided after the tour! Meet for the tour in the museum lobby on the main floor, near the gift shop. All ages welcome and families welcome! Free parking available in the lot east of the museum main entrance. The Springville Art Museum is located at 126 East 400 South in Springville. Please consider bringing $1 per attendee to donate to the museum as a thank you for their exhibits and services. There is no entrance fee for the museum. 
+
 - Our 1st Birthday! 7/20 @ 6-10pm Picnic & Pool Party at the Lehi Legacy Center. More info coming soon! 
 
-![pool party](/files/flyersummerpicnicmini.jpg)
+![sweet art](/files/flyerartwalkmini.jpg)
 
 Check out our social media pages for photos from fun past events! (Kickoff picnic, chilling at Provo Pride, fall break bowling, hanging out at roller derby...)
 
