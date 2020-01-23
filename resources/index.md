@@ -2,11 +2,10 @@
 title: Local Resources
 menu-title: Local Resources
 ---
-## 🏳️‍🌈 Under Construction
 
 Do you know of some local queer & trans affirming service providers, educators, or spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? ... LET US KNOW via our contact page! We'll check them out and add them here! 
 
-Utah County Support Groups & Organizations
+## 🏳️‍🌈 Utah County Support Groups & Organizations
 
 - [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties, sponsored by the Pride Center and Encircle
 - [Mama Dragons](https://mamadragons.org) support group for moms with LGBTQIA+ youth
@@ -17,21 +16,21 @@ Utah County Support Groups & Organizations
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
 - [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
 
-Local Therapists
+## 🏳️‍🌈 Local Therapists
 
 - [The LGBTQ-Affirmative Psychotherapist Guild of Utah – directory searchable by location, services, specialties, insurance, and languages](http://lgbtqtherapists.com/directory.html)
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
 
-Online Glossaries of Queer Terms
+## 🏳️‍🌈 Online Glossaries of Queer Terms
 
 - [UC Davis ~ LGBTQIA Resource Center Glossary](https://lgbtqia.ucdavis.edu/educated/glossary?fbclid=IwAR2oeHVRlGOWoJ_CiwzkxRTjaeR1GZJcZEmq_PgvSb9EAywPr4-0W-CDD-0)
 - [GLAAD ~ An Ally's Guide to Terminology](http://www.glaad.org/sites/default/files/allys-guide-to-terminology_1.pdf?fbclid=IwAR3yd_5a80oD5cJOiq8u177Kqf8gCYuDEiGZs7-L74RjLsUlLDlUv0CAUT4)
 - [Human Rights Campaign ~ Glossary of Terms](https://www.hrc.org/resources/glossary-of-terms?fbclid=IwAR2jzC52LqaE_-fgEEMo8hHqk1uTAbcisEvoUTWThirI5vrTUnADhy9ROaQ) 
 - [PFLAG ~ National Glossary of Terms](https://pflag.org/glossary?fbclid=IwAR35pBB0uTPRBIRJiqZN3XIaqHkvBITuZp8_SeCIubZTYzPqGUdxIRL2w3U)
-- [Trevor Support Center FAQ & Glossary](https://www.thetrevorproject.org/resources/trevor-support-center/) 
+- [Trevor Support Center ~ FAQ & Glossary](https://www.thetrevorproject.org/resources/trevor-support-center/) 
 - [University of Wisconsin Milwaukee ~ Gender Pronouns](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
 
-We love GSAs! Here are some helpful resources for prospective & current clubs...
+## 🏳️‍🌈 Helpful resources for prospective & current GSA clubs...
 
 - [GSA Network ~ What is a GSA club?](https://gsanetwork.org/what-is-a-gsa/) 
 - [ACLU ~ How to Start a Gay-Straight Alliance (GSA)](https://www.aclu.org/other/how-start-gay-straight-alliance-gsa) 
@@ -46,14 +45,14 @@ We love GSAs! Here are some helpful resources for prospective & current clubs...
 - [GSA Network ~ Dealing with Hostility & Opposition](https://gsanetwork.org/resources/dealing-with-hostility-opposition/)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
-Scholarships
+## 🏳️‍🌈 Scholarships
  - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
 
 ![Image source: San Francisco State University Family Acceptance Project](/files/Acceptance_Poster_website.jpg)
 
 Image source: San Francisco State University [Family Acceptance Project](https://familyproject.sfsu.edu)
 
-Online Classes, Reports, Articles & Resources 
+## 🏳️‍🌈 Online Classes, Reports, Articles & Resources 
 
 - [The Trevor Project](https://www.thetrevorproject.org)
 - [TrevorSpace ~ an affirming international community for LGBTQ young people ages 13-24](https://www.trevorspace.org/?utm_source=trevor_website&utm_medium=web&utm_campaign=get_help_page)  
@@ -68,7 +67,7 @@ Online Classes, Reports, Articles & Resources
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
 - [History is Gay podcast ~ Two queer nerds share their love for the past](https://www.historyisgaypodcast.com)
 
-Additional Organizations & Resources (Salt Lake City/Salt Lake County)
+## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City/Salt Lake County)
 
 - [Encircle](www.EncircleTogether.org)
 - [Equality Utah](www.equalityutah.org)
