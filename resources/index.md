@@ -28,6 +28,7 @@ Online Glossaries of Queer Terms
 - [GLAAD ~ An Ally's Guide to Terminology](http://www.glaad.org/sites/default/files/allys-guide-to-terminology_1.pdf?fbclid=IwAR3yd_5a80oD5cJOiq8u177Kqf8gCYuDEiGZs7-L74RjLsUlLDlUv0CAUT4)
 - [Human Rights Campaign ~ Glossary of Terms](https://www.hrc.org/resources/glossary-of-terms?fbclid=IwAR2jzC52LqaE_-fgEEMo8hHqk1uTAbcisEvoUTWThirI5vrTUnADhy9ROaQ) 
 - [PFLAG ~ National Glossary of Terms](https://pflag.org/glossary?fbclid=IwAR35pBB0uTPRBIRJiqZN3XIaqHkvBITuZp8_SeCIubZTYzPqGUdxIRL2w3U)
+- [Trevor Support Center FAQ & Glossary](https://www.thetrevorproject.org/resources/trevor-support-center/) 
 - [University of Wisconsin Milwaukee ~ Gender Pronouns](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
 
 We love GSAs! Here are some helpful resources for prospective & current clubs...
@@ -52,9 +53,10 @@ Scholarships
 
 Image source: San Francisco State University [Family Acceptance Project](https://familyproject.sfsu.edu)
 
-Online Classes, Packets, Reports & Articles
+Online Classes, Reports, Articles & Resources 
 
 - [The Trevor Project](https://www.thetrevorproject.org)
+- [TrevorSpace ~ an affirming international community for LGBTQ young people ages 13-24](https://www.trevorspace.org/?utm_source=trevor_website&utm_medium=web&utm_campaign=get_help_page)  
 - [Gender Spectrum ~ Parenting & Family](https://www.genderspectrum.org/explore-topics/parenting-and-family/)
 - [Gender Spectrum ~ Teens](https://www.genderspectrum.org/resources/teens-2/)
 - [Gender Spectrum ~ Education](https://www.genderspectrum.org/resources/education-2/)
