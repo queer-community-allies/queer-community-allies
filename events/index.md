@@ -19,7 +19,7 @@ Coming up:
 
 - QPR Training in March. Question, Persuade, Refer for suicide prevention. Taught by Communities That Care. More info soon. 
 
-- Inter-GSA Meet “Learn From Each Other” For GSA students, club advisors & admin in north Utah County + neighbors. Snacks, Q&A, games, socializing, free swag & more! More info soon.   
+- Inter-GSA Meet 4/23 @ 2:30-5:00pm. “Learn From Each Other” For GSA students, club advisors & admin in north Utah County + neighbors. Snacks, Q&A, games, socializing, free swag & more! More info soon.   
 
 - Our 1st Birthday! 7/20 @ 6-10pm Picnic & Pool Party at the Lehi Legacy Center. More details to come.  
 
