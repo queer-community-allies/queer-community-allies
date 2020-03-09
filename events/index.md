@@ -23,7 +23,7 @@ Coming up:
 
 - Our 1st Birthday! 7/20 @ 6-10pm Picnic & Pool Party at the Lehi Legacy Center. More details to come.  
 
-Check out our social media pages for photos from fun past events! (Kickoff picnic, chilling at Provo Pride, fall break bowling, hanging out at roller derby...)
+Check out our social media pages for photos from fun past events! (Kickoff picnic, chilling at Provo Pride, fall break bowling, hanging out at roller derby, art night...)
 
 
 Queer Community Allies is a mobile support system (and we don't get enough funds yet to have a physical space), so we only occasionally host events. If you want to be involved and help plan events, AND know of a free or inexpensive place to host them, please reach out and let us know! We're always looking for volunteers who can invest multiple hours each month to help run on-going projects. 
