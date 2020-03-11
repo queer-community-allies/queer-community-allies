@@ -17,7 +17,7 @@ Check out these events being sponsored by our friends!
 
 Coming up: 
 
-- QPR Training. 3/25 @ 7-8:30pm. Question, Persuade, Refer for suicide prevention. Taught by Communities That Care. A wonderful, free, educational evening for parents, caregivers, nonprofit workers, and friends. Register at: [https://www.eventbrite.com/e/qpr-training-with-queer-community-allies-tickets-91174628769](https://www.eventbrite.com/e/qpr-training-with-queer-community-allies-tickets-91174628769) **Just 22 seats left!**
+- QPR Training. 3/25 @ 7-8:30pm. Question, Persuade, Refer for suicide prevention. Taught by Communities That Care. A wonderful, free, educational evening for parents, caregivers, nonprofit workers, and friends. Register at: [https://www.eventbrite.com/e/qpr-training-with-queer-community-allies-tickets-91174628769](https://www.eventbrite.com/e/qpr-training-with-queer-community-allies-tickets-91174628769) **Just 20 seats left!**
 
 - Inter-GSA Meet 4/23 @ 2:30-5:00pm. “Learn From Each Other” For GSA students, club advisors & admin in north Utah County + neighbors. Snacks, Q&A, games, socializing, free swag & more! More info soon.   
 
