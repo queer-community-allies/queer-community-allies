@@ -3,7 +3,7 @@ title: Welcome
 ---
 
 ## COVID-19/2019-nCoV
-Get up-to-date information at [coronavirus.utah.gov](coronavirus.utah.gov). #StopMisinformation 
+Get up-to-date information at [coronavirus.utah.gov](https://coronavirus.utah.gov). #StopMisinformation 
 
 Spread joy, hope, and accurate information! #StayAtHomeChallenge #SafeHands #TogetherAtHome #CoronaKindness #QuarantineAndChill 
 
