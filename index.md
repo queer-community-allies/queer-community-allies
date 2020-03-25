@@ -4,7 +4,8 @@ title: Welcome
 
 ## COVID-19/2019-nCoV
 Get up-to-date information at [coronavirus.utah.gov](coronavirus.utah.gov)
-#StayAtHomeChallenge #SafeHands #TogetherAtHome #CoronaKindness #QuarantineAndChill 
+
+Spread joy, hope, and accurate information #StayAtHomeChallenge #SafeHands #TogetherAtHome #CoronaKindness #QuarantineAndChill 
 
 ## Stay connected while staying at home! 
 
