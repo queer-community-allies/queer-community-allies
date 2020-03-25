@@ -23,7 +23,7 @@ Coming up:
 
 - Our 1st Birthday! 7/20 @ 6-10pm Picnic & Pool Party at the Lehi Legacy Center. More details to come.  
 
-![Our first birthday!](files/flyersummerpicnicmini.jpg)
+![Our first birthday!](files/flyersummerpicnicmini.jpg/)
 
 Check out our social media pages for photos from fun past events! (Kickoff picnic, chilling at Provo Pride, fall break bowling, hanging out at roller derby, art night...)
 
