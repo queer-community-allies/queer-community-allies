@@ -21,9 +21,8 @@ Coming up:
 
 - **POSTPONED until fall** Inter-GSA Meet 4/23 @ 2:30-5:00pm. “Learn From Each Other” For GSA students, club advisors & admin in north Utah County + neighbors. Snacks, Q&A, games, socializing, free swag & more! More info soon.   
 
-- Our 1st Birthday! 7/20 @ 6-10pm Picnic & Pool Party at the Lehi Legacy Center. More details to come.  
+- Our 1st Birthday! 7/20 @ 6-8pm Gathering (social distancing observed!) at Margaret Wines Park, Lehi. More details to come.  
 
-![summerpicnic](/files/flyersummerpicnicmini.jpg)
 
 Check out our social media pages for photos from fun past events! (Kickoff picnic, chilling at Provo Pride, fall break bowling, hanging out at roller derby, art night...)
 
