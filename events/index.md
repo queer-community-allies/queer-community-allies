@@ -17,7 +17,7 @@ Check out these events being sponsored by our friends!
 
 Coming up: 
 
-- **Our 1st Birthday!** 7/20 @ 6-8pm Gathering (social distancing observed!) at Margaret Wines Park, Lehi. More details to come.  
+- **Our 1st Birthday!** (Date TBD in July or August) will be an evening @ 6-8pm Save the date for a casual outdoor gathering for families, friends, teens & allies to celebrate ONE YEAR of our organization! Will likely be held at a park to allow for safe social distancing, and masks will be strongly encouraged. More details to come!  
 
 
 Check out our Instagram & Facebook pages for photos from fun past events! (Kickoff picnic, chilling at Provo Pride, fall break bowling, hanging out at roller derby, art night...)
