@@ -20,6 +20,7 @@ Do you know of some local queer & trans affirming service providers, educators, 
 
 - [The LGBTQ-Affirmative Psychotherapist Guild of Utah – directory searchable by location, services, specialties, insurance, and languages](http://lgbtqtherapists.com/directory.html)
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
+- [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
 
 ## 🏳️‍🌈 Online Glossaries of Queer Terms
 
@@ -77,5 +78,6 @@ Image source: San Francisco State University [Family Acceptance Project](https:/
 - [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
 - [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
 - [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
+- [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health) 
 
 
