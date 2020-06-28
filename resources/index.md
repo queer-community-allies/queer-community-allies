@@ -12,7 +12,7 @@ Do you know of some local queer- & trans-affirming service providers in north Ut
 - [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads with LGBTQIA+ youth
 - [Gender Bands (Orem)](https://www.genderbands.org) funding for trans surgeries and weekly meetups for trans teens and adults
 - [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
-- [Encircle (Provo)](www.EncircleTogether.org) center and therapy with events for LGBTQ teens and families
+- [Encircle (Provo)](www.EncircleTogether.org) center with events for LGBTQ teens and families
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
 - [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
 
