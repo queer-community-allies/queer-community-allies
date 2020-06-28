@@ -16,7 +16,7 @@ Our 2020-2021 Board
 - Sarah DeLong
 - Dave DeLong 
 
-Contact us if you want to get involved! We are currently a tiny organization with limited volunteer opportunities aside from joining the board to organize efforts. Due to the COVID-19 epidemic, our service opportunities are even more limited. We welcome adults 18+ who could pass a background check and who are creative and willing to devote a few hours each month. We have existed for just over a year and to date have raised almost $3,000 in donations. 
+Contact us if you want to get involved! We are currently a tiny organization with limited volunteer opportunities aside from joining the board to organize efforts. Due to the COVID-19 epidemic, our service opportunities are even more limited. We welcome adults 18+ who can pass a background check and who are creative and willing to devote a few hours each month. We have existed for just over a year and to date have raised almost $3,000 in donations. 
 
 
 Our origins...
