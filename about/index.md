@@ -12,9 +12,9 @@ We are also asked why we chose the word "Queer" for our name. Like many, we belo
 
 Our origins...
 
-Queer Community Allies started in the spring of 2019 as a plan among friends in a social media group to support the local high school GSA (gay straight alliance). Reeling from news of more local queer teen deaths and more local queer bullying, Christine Hubbard (she/her) and Sarah DeLong (she/her, they/their) wondered how they could rally their friends to donate time and money to the high school club. They wanted to show teens that they had support in the larger community and raise the level of acceptance in their predominantly anti-2LGBTQIA+ cities. After only a few conversations, Christine and Sarah knew these efforts were headed to something bigger, and over the next few weeks they turned these ideas into the paperwork necessary to recognize Queer Community Allies as a non-profit corporation by the State of Utah. Our kickoff social & fundraising event was held in the summer of 2019.  
+Queer Community Allies started in the spring of 2019 as a plan among friends in a social media group to support the local high school GSA (gay straight alliance). Reeling from news of more local queer teen deaths and more local queer bullying, Christine (she/her) and Sarah (she/her, they/their) were talking and trying to organize with their friends to donate time and money to the high school club. They wanted to show teens that they had support in the larger community and raise the level of acceptance in their predominantly anti-LGBTQIA+ cities. After some productive conversations, Christine and Sarah deciding to spend the next few weeks turning these ideas into the paperwork necessary to recognize Queer Community Allies as a non-profit corporation by the State of Utah.   
 
-Our Board
+Our 2020-2021 Board
 - Christine Hubbard
 - Chanelle Christensen
 - Lacy Fife
