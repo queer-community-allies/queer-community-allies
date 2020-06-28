@@ -18,7 +18,7 @@ Do you know of some local queer- & trans-affirming service providers in north Ut
 
 ## 🏳️‍🌈 Local Therapists
 
-- [The LGBTQ-Affirmative Psychotherapist Guild of Utah – directory searchable by location, services, specialties, insurance, and languages](http://lgbtqtherapists.com/directory.html)
+- [The LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html) therapist directory searchable by location, services, specialties, insurance, and languages]
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
 - [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
 
