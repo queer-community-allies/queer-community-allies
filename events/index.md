@@ -4,19 +4,6 @@ menu-title: Events
 ---
 
 
-Check out these events being sponsored by our friends!
-
-- Genderbands (Orem) [List of events via Facebook](https://www.facebook.com/pg/genderbands/events/)
-
-- QueerMeals (Provo) [List of events via Facebook](https://www.facebook.com/pg/queermeals/events/?ref=page_internal)
-
-- Encircle (Provo) [List of events via Facebook](https://www.facebook.com/pg/EncircleProvo/events/?ref=page_internal) 
-
-- Rainbow Mutual (Utah/Salt Lake counties) [Facebook page](https://www.facebook.com/RainbowMutual/)
-
-
-Coming up: 
-
 - **Our 1st Birthday!** (Date TBD in July or August) will be an evening @ 6-8pm. Join us for a casual outdoor gathering for families, friends, teens & allies to celebrate ONE YEAR of our organization! Will likely be held at a park to allow for safe social distancing, and masks will be strongly encouraged. More details to come! Follow us on [Instagram](https://www.instagram.com/queercommunityallies/) or [Facebook](https://www.facebook.com/QueerCommunityAllies) for updates.  
 
 
