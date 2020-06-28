@@ -3,7 +3,7 @@ title: Local Resources
 menu-title: Local Resources
 ---
 
-Do you know of some local queer & trans affirming service providers in north Utah County? Educators? Spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? ... Let us know via our contact page! We'll check them out and add them here! 
+Do you know of some local queer- & trans-affirming service providers in north Utah County? Educators? Spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? ... Let us know via our contact page! We'll check them out and add them here! 
 
 ## 🏳️‍🌈 Utah County Support Groups & Organizations
 
