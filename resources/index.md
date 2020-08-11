@@ -83,7 +83,7 @@ List under construction
 - [Stonewall Sports SLC](http://www.stonewallsportsslc.org) 
 - [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
 - [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
-- [Utah Aids Foundation] 
+- Utah Aids Foundation
 - [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
 
 ## 🏳️‍🌈 Additional Online Resources, Spaces, Podcasts, & Information 
