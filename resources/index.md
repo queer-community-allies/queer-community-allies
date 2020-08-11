@@ -14,19 +14,15 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 - [Trevor Support Center ~ FAQ & Glossary](https://www.thetrevorproject.org/resources/trevor-support-center/) 
 - [University of Wisconsin Milwaukee ~ Gender Pronouns](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
 
-## 🏳️‍🌈 Local Affirming Workplaces for Teens
+## 🏳️‍🌈 Local Workplaces for Teens
 
 - List under construction
 
-## 🏳️‍🌈 Local Affirming Teams, Hobby & Interest Groups, and Hangout Spots for Teens 
+## 🏳️‍🌈 Local Teams, Hobby & Interest Groups, and Hangout Spots for Teens 
 
 - List under construction
 
-## 🏳️‍🌈 Local Affirming Health Providers for Teens
-
-- List under construction
-
-## 🏳️‍🌈 Local Therapists for Teens 
+## 🏳️‍🌈 Local Health Providers & Therapists for Teens
 
 - [The LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html) therapist directory searchable by location, services, specialties, insurance, and languages
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
@@ -43,11 +39,9 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 - [GLSEN ~ How to Find a Club Advisor](https://www.glsen.org/gsa/findanadvisor)
 - [GLSEN ~ Educators! Support Your GSA!](https://www.glsen.org/article/educators-support-your-gsa)
 - [GSA Network ~ Tips for keeping your GSA and its members safe](https://gsanetwork.org/resources/gsa-safety-resource/) 
-- [GSA Network ~ Creating inclusive GSAs](https://gsanetwork.org/resources/creating-inclusive-gsas/)
 - [GLSEN ~ Make Your GSA Transgender and Gender Nonconforming Inclusive](https://www.glsen.org/GSA/making-your-club-inclusive-transgender-and-gnc-students)
 - [GSA Network ~ How to get more members & allies](https://gsanetwork.org/resources/how-to-get-more-members-allies/)
 - [GLSEN ~ Know Your Rights](https://www.glsen.org/knowyourrights)
-- [GSA Network ~ Dealing with Hostility & Opposition](https://gsanetwork.org/resources/dealing-with-hostility-opposition/)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
 ## 🏳️‍🌈 Local Teen & Family Support Groups and Nonprofits 
