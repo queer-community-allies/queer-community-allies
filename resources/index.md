@@ -60,7 +60,7 @@ List under construction
 - [Equality Utah](www.equalityutah.org)
 - [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) 
 - [HRC Utah](www.hrcutah.org)
-- [LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html) Therapist directory searchable by location, services, & insurance 
+- [LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html) directory searchable by location, services, & insurance 
 - [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
 - [Peculiar](https://www.thepeculiar.org) 
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) 
