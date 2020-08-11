@@ -47,7 +47,7 @@ List under construction
 ## 🏳️‍🌈 Scholarships
  - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
  
-## 🏳️‍🌈 Nearby Teen & Family Support Groups 
+## 🏳️‍🌈 Nearby Teen & Family Support  
 
 - [Encircle (Provo)](www.EncircleTogether.org) center with events & therapy for LGBTQ teens and families
 - [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads of LGBTQIA+ children
@@ -56,32 +56,35 @@ List under construction
 - [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
 - [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
 
-## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City/northern Utah)
+## 🏳️‍🌈 Additional Teen, Young Adult & Family Support (Salt Lake City/northern Utah)
 
 - [Affirmation: LGBTQ Mormons, Families & Friends](https://affirmation.org)
 - [Encircle (SLC)](https://encircletogether.org)
+- [The OUT Foundation](https://www.theout.foundation) 
+- [Peculiar](https://www.thepeculiar.org) 
+- [Spectrum: QSA at UVU] 
+- [USGA at BYU (Provo)] 
+- [Utah Pride Center (SLC)](https://utahpridecenter.org)
+- [Youth Futures (Ogden)](https://www.youthfuturesutah.org) 
+
+## 🏳️‍🌈 Additional Organizations & Services (Salt Lake City/northern Utah)
+
 - [Equality Utah](www.equalityutah.org)
 - [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) 
 - [HRC Utah](www.hrcutah.org)
 - [LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html) directory searchable by location, services, & insurance 
 - [Logan Pride Festival](https://www.facebook.com/loganprideUT/)
 - [Love Loud](https://loveloudfest.com/foundation)
-- [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
-- [The OUT Foundation](https://www.theout.foundation) BYU alumni 
-- [Peculiar](https://www.thepeculiar.org) 
+- [National Center for Transgender Equality - Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) 
 - [Provo Pride Festival](https://www.provopride.org)
 - [QUAC - Queer Utah Aquatic Club (SLC)(https://www.quacquac.org) 
 - [Rebirth OBGYN, Transgender Health (SLC)](https://www.rebirthobgyn.com/services/transgender-health) 
-- [Spectrum: QSA at UVU] 
 - [Stonewall Sports SLC](http://www.stonewallsportsslc.org) 
 - [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
 - [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
-- [USGA at BYU (Provo)] 
 - [Utah Aids Foundation] 
 - [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
-- [Utah Pride Center (SLC)](https://utahpridecenter.org)
-- [Youth Futures (Ogden)](https://www.youthfuturesutah.org) 
 
 ## 🏳️‍🌈 Additional Online Resources, Spaces, Podcasts, & Information 
 
