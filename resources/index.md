@@ -59,13 +59,13 @@ List under construction
 ## 🏳️‍🌈 Additional Teen, Young Adult & Family Support (Salt Lake City/northern Utah)
 
 - [Affirmation: LGBTQ Mormons, Families & Friends](https://affirmation.org)
-- [Encircle (SLC)](https://encircletogether.org)
+- [Encircle](https://encircletogether.org)
 - [The OUT Foundation](https://www.theout.foundation) 
 - [Peculiar](https://www.thepeculiar.org) 
-- [Spectrum: QSA at UVU] 
-- [USGA at BYU (Provo)] 
-- [Utah Pride Center (SLC)](https://utahpridecenter.org)
-- [Youth Futures (Ogden)](https://www.youthfuturesutah.org) 
+- Spectrum: QSA at UVU
+- USGA at BYU
+- [Utah Pride Center](https://utahpridecenter.org)
+- [Youth Futures](https://www.youthfuturesutah.org) 
 
 ## 🏳️‍🌈 Additional Organizations & Services (Salt Lake City/northern Utah)
 
@@ -78,8 +78,8 @@ List under construction
 - [National Center for Transgender Equality - Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) 
 - [Provo Pride Festival](https://www.provopride.org)
-- [QUAC - Queer Utah Aquatic Club (SLC)(https://www.quacquac.org) 
-- [Rebirth OBGYN, Transgender Health (SLC)](https://www.rebirthobgyn.com/services/transgender-health) 
+- [QUAC - Queer Utah Aquatic Club](https://www.quacquac.org) 
+- [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health) 
 - [Stonewall Sports SLC](http://www.stonewallsportsslc.org) 
 - [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
 - [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
