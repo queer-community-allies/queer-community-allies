@@ -7,7 +7,7 @@ menu-title: On-Going Projects
 
 We support GSAs (gay straight alliances/gender sexuality alliances; student-led with a teacher-staff-counselor advisor) in local high schools. Posters, stickers, flags, buttons, masks, wrapped snacks, books, funds for supplies, crafting items, board games, cards, guest visits from affirming adults, contacts from local businesses who can partner for donations... If they don't have the resources for success, we try to help. Reach out through our Contact page if you want to get involved, or if you are part of a local GSA looking for help. #AdoptaGSA 
 
-## Classroom Decor & Educator Buttons
+## Classroom Decor & Educator Supplies
 
 Teachers often ask us for buttons to distribute to faculty-friends and students and for posters, stickers and flags for their classrooms. If you're a teacher who would like some items, reach out! We'd be happy to gift you some! 
 
@@ -17,7 +17,7 @@ Community ally who wants to support? Include a "classroom decor" note with a [do
 
 ## Community Events
 
-We've been to one Pride (yay Provo 2019!) and look forward to more! We also love joining other organizations at various city community nights, being involved with other local youth efforts like Communities That Care, and talking with educators and parents who want to learn more about supporting their queer family members, students, and neighbors. 
+We love going to Pride, joining other organizations at various city community nights, being involved with other local youth efforts like Communities That Care, and hosting events to talk with educators and parents who want to learn more about supporting their queer family members, students, and comunity youth. 
 
 ## Community Swag
 
