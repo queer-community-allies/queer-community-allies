@@ -3,9 +3,9 @@ title: Local Resources
 menu-title: Local Resources
 ---
 
-Do you know of some local queer- & trans-affirming service providers in north Utah County? Educators? Spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? ... Let us know via our contact page! We'll check them out and add them here! 
+Do you know of some local teen queer-affirming service providers in north Utah County or south Salt Lake County? Educators? Spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? Let us know via our contact page! We'll check them out and add them here! 
 
-## 🏳️‍🌈 Utah County Support Groups & Organizations
+## 🏳️‍🌈 Local Support Groups & Organizations
 
 - [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties, sponsored by the Pride Center and Encircle
 - [Mama Dragons](https://mamadragons.org) support group for moms with LGBTQIA+ youth
@@ -14,7 +14,6 @@ Do you know of some local queer- & trans-affirming service providers in north Ut
 - [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
 - [Encircle (Provo)](www.EncircleTogether.org) center with events for LGBTQ teens and families
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
-- [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
 
 ## 🏳️‍🌈 Local Therapists
 
@@ -74,6 +73,7 @@ Image source: San Francisco State University [Family Acceptance Project](https:/
 - [Equality Utah](www.equalityutah.org)
 - [HRC Utah](www.hrcutah.org)
 - [Utah Pride Center](https://utahpridecenter.org)
+- [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
 - [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
 - [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
 - [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
