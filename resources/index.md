@@ -3,7 +3,7 @@ title: Local Resources
 menu-title: Local Resources
 ---
 
-Do you know of some teen queer-affirming service providers in north Utah County or south Salt Lake County? Let us know via our contact page! We'll check them out and add them here! 
+Do you know of some teen queer-affirming service providers in north Utah County or south Salt Lake County? Reach out and let us know! 
 
 ## 🏳️‍🌈 Online Glossaries of Queer Terms
 
