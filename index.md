@@ -2,12 +2,10 @@
 title: Welcome
 ---
 
-## COVID-19/2019-nCoV
-Get up-to-date information at [coronavirus.utah.gov](https://coronavirus.utah.gov). #StopMisinformation 
 
-Spread joy, hope, and accurate information! #StayAtHomeChallenge #SafeHands #TogetherAtHome #CoronaKindness #QuarantineAndChill 
+## Stay connected while social distancing! 
 
-## Stay connected while staying at home! 
+#StayAtHomeChallenge #SafeHands #TogetherAtHome #CoronaKindness #QuarantineAndChill 
 
 - Know of some upcoming virtual events? Let us know! contact(at)queercommunityallies(dot)org 
 - GLBT National Youth Talkline provides telephone, online, and private one-to-one chat and email peer support, as well as factual information and local resources for cities and towns across the United States. This includes weekly youth chat rooms and IM with a peer support volunteer. 1-800-246-7743 & [https://www.glbtonline.org](https://www.glbtonline.org) 
