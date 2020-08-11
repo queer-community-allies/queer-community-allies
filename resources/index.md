@@ -16,11 +16,13 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 
 ## 🏳️‍🌈 Nearby Workplaces for Teens
 
-- List under construction
+List under construction
 
 ## 🏳️‍🌈 Nearby Teams, Hobby & Interest Groups, and Hangout Spots for Teens 
 
-- List under construction
+List under construction
+
+- [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties 
 
 ## 🏳️‍🌈 Nearby Health Providers & Therapists for Teens
 
@@ -49,7 +51,7 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 - [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads with LGBTQIA+ youth
 - [Gender Bands (Orem)](https://www.genderbands.org) funding for trans surgeries and weekly meetups for trans teens and adults
 - [Mama Dragons](https://mamadragons.org) support group for moms with LGBTQIA+ youth
-- [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties 
+- [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
 - [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
 
 ## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City/northern Utah)
