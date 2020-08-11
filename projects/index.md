@@ -3,13 +3,13 @@ title: On-Going Projects
 menu-title: On-Going Projects
 ---
 
-## Support GSAs 
+## Local GSA Support 
 
-Teens are amazing! We partner with local GSAs (gay straight alliances/gender sexuality alliances...a social club for queer teens on their campus) to provide tangible and emotional support to club members and advisors. We can provide craft supplies, swag (stickers, flags, buttons, and more), pantry-stable snacks, books, information, and more! Reach out through our Contact page if you want to get involved, or if you are part of a local GSA and looking for help. 
+We support GSAs (gay straight alliances/gender sexuality alliances; student-led with a teacher-staff-counselor advisor) in local high schools, providing tangible and emotional support. Posters, stickers, flags, buttons, masks, wrapped snacks, books, funds for supplies, crafting items, board games, cards, guest visits from affirming adults, contacts from local businesses who can partner for donations... If they don't have the resources for success, we try to help. #AdoptaGSA Reach out through our Contact page if you want to get involved, or if you are part of a local GSA and looking for help. 
 
 ## Educator Pins
 
-Advisors and teachers love having pins in their classroom that they can give to those in the high school who want to display their ally support. We purchase batches of pins to donate, as we receive requests from safe allies on behalf of their spaces. Every $2.50 that you donate gets a pin to a teacher at a high school or other safe space. 🏳️‍🌈
+Advisors and teachers love having pins in their classroom that they can give to those in the high school who want to display their ally support. We purchase batches of pins to donate, as we receive requests from safe allies on behalf of their spaces. 
 
 ## Community Swag
 
