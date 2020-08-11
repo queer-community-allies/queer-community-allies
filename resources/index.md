@@ -48,9 +48,18 @@ Do you know of some local teen queer-affirming service providers in north Utah C
 ## 🏳️‍🌈 Scholarships
  - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
 
-![Image source: San Francisco State University Family Acceptance Project](/files/Acceptance_Poster_website.jpg)
+## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City/Salt Lake County)
 
-Image source: San Francisco State University [Family Acceptance Project](https://familyproject.sfsu.edu)
+- [Encircle](www.EncircleTogether.org)
+- [Equality Utah](www.equalityutah.org)
+- [HRC Utah](www.hrcutah.org)
+- [Utah Pride Center](https://utahpridecenter.org)
+- [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
+- [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
+- [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
+- [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
+- [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
+- [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health) 
 
 ## 🏳️‍🌈 Online Classes, Reports, Articles & Resources 
 
@@ -67,17 +76,6 @@ Image source: San Francisco State University [Family Acceptance Project](https:/
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
 - [History is Gay podcast ~ Two queer nerds share their love for the past](https://www.historyisgaypodcast.com)
 
-## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City/Salt Lake County)
+![Image source: San Francisco State University Family Acceptance Project](/files/Acceptance_Poster_website.jpg)
 
-- [Encircle](www.EncircleTogether.org)
-- [Equality Utah](www.equalityutah.org)
-- [HRC Utah](www.hrcutah.org)
-- [Utah Pride Center](https://utahpridecenter.org)
-- [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
-- [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
-- [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
-- [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
-- [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
-- [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health) 
-
-
+Image source: San Francisco State University [Family Acceptance Project](https://familyproject.sfsu.edu)
