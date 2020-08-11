@@ -67,10 +67,13 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 - [Rebirth OBGYN, Transgender Health (SLC)](https://www.rebirthobgyn.com/services/transgender-health) 
 - [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
 
-## 🏳️‍🌈 Online Classes, Reports, Articles & Resources 
+## 🏳️‍🌈 Other Online Resources, Spaces, Podcasts, Reports & Articles 
 
 - [The Trevor Project](https://www.thetrevorproject.org)
 - [TrevorSpace ~ an affirming international community for LGBTQ young people ages 13-24](https://www.trevorspace.org/?utm_source=trevor_website&utm_medium=web&utm_campaign=get_help_page)  
+- [History is Gay podcast ~ Two queer nerds share their love for the past](https://www.historyisgaypodcast.com)
+- [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+- [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
 - [Gender Spectrum ~ Parenting & Family](https://www.genderspectrum.org/explore-topics/parenting-and-family/)
 - [Gender Spectrum ~ Teens](https://www.genderspectrum.org/resources/teens-2/)
 - [Gender Spectrum ~ Education](https://www.genderspectrum.org/resources/education-2/)
@@ -78,9 +81,6 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 - [Gender Spectrum ~ Mental Health](https://www.genderspectrum.org/resources/mental-health-2/)
 - [Gender Spectrum ~ Medical](https://www.genderspectrum.org/resources/medical-2/)
 - [Gender Spectrum ~ Faith](https://www.genderspectrum.org/resources/faith-2/)
-- [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
-- [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
-- [History is Gay podcast ~ Two queer nerds share their love for the past](https://www.historyisgaypodcast.com)
 
 ![Image source: San Francisco State University Family Acceptance Project](/files/Acceptance_Poster_website.jpg)
 
