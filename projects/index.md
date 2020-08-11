@@ -21,7 +21,7 @@ We've been to one Pride (yay Provo 2019!) and look forward to more! We also love
 
 ## Community Swag
 
-We love sharing swag from our neighbor organizations! Thank you Pride Center, Equality Utah, and Encircle for giving us calendars, chapstick, stickers, pamphlets, flags, glow bracelets, and more to distribute to our teens and at local events. We love seeing rainbow swag driving around our towns, from any group! Check out our Queer Community Allies swag collection at [QueerCommunityAllies at Zazzle.com](https://www.zazzle.com/store/queercommunityallies).
+We love sharing swag from our neighbor organizations! Thank you Pride Center, Equality Utah, and Encircle for giving us calendars, chapstick, stickers, pamphlets, flags, glow bracelets, and more to distribute to our teens and at local events. We love seeing rainbow swag around town, from any group! Check out our Queer Community Allies swag collection at [QueerCommunityAllies at Zazzle.com](https://www.zazzle.com/store/queercommunityallies).
 
 ## Dream Project: GSA Meet
  
