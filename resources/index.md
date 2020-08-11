@@ -14,22 +14,18 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 - [Trevor Support Center ~ FAQ & Glossary](https://www.thetrevorproject.org/resources/trevor-support-center/) 
 - [University of Wisconsin Milwaukee ~ Gender Pronouns](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
 
-## 🏳️‍🌈 Local Workplaces for Teens
+## 🏳️‍🌈 Nearby Workplaces for Teens
 
 - List under construction
 
-## 🏳️‍🌈 Local Teams, Hobby & Interest Groups, and Hangout Spots for Teens 
+## 🏳️‍🌈 Nearby Teams, Hobby & Interest Groups, and Hangout Spots for Teens 
 
 - List under construction
 
-## 🏳️‍🌈 Local Health Providers & Therapists for Teens
+## 🏳️‍🌈 Nearby Health Providers & Therapists for Teens
 
-- [The LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html) therapist directory searchable by location, services, specialties, insurance, and languages
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
 - [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
-
-## 🏳️‍🌈 Scholarships
- - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
 
 ## 🏳️‍🌈 Helpful resources for prospective & current GSA clubs...
 
@@ -44,34 +40,39 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 - [GLSEN ~ Know Your Rights](https://www.glsen.org/knowyourrights)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
-## 🏳️‍🌈 Local Teen & Family Support Groups and Nonprofits 
+## 🏳️‍🌈 Scholarships
+ - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
+ 
+## 🏳️‍🌈 Nearby Teen & Family Support Groups 
 
-- [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties, sponsored by the Pride Center and Encircle
+- [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties 
 - [Mama Dragons](https://mamadragons.org) support group for moms with LGBTQIA+ youth
 - [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads with LGBTQIA+ youth
 - [Gender Bands (Orem)](https://www.genderbands.org) funding for trans surgeries and weekly meetups for trans teens and adults
 - [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
 - [Encircle (Provo)](www.EncircleTogether.org) center with events for LGBTQ teens and families
-- [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
 
-## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City or northern Utah)
+## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City/northern Utah)
 
 - [HRC Utah](www.hrcutah.org)
 - [Utah Pride Center (SLC)](https://utahpridecenter.org)
 - [Encircle (SLC)](https://encircletogether.org)
 - [Equality Utah](www.equalityutah.org)
+- [The LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html) Therapist directory searchable by location, services, specialties, insurance, and languages
+- [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) 
+- [Peculiar](https://www.thepeculiar.org) 
 - [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
-- [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
-- [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
-- [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
 - [Rebirth OBGYN, Transgender Health (SLC)](https://www.rebirthobgyn.com/services/transgender-health) 
 - [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
+- [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
+- [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
+- [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
 
-## 🏳️‍🌈 Other Online Resources, Spaces, Podcasts, Reports & Articles 
+## 🏳️‍🌈 Additional Online Resources, Spaces, Podcasts, & Information 
 
 - [The Trevor Project](https://www.thetrevorproject.org)
-- [TrevorSpace ~ an affirming international community for LGBTQ young people ages 13-24](https://www.trevorspace.org/?utm_source=trevor_website&utm_medium=web&utm_campaign=get_help_page)  
-- [History is Gay podcast ~ Two queer nerds share their love for the past](https://www.historyisgaypodcast.com)
+- [TrevorSpace](https://www.trevorspace.org/?utm_source=trevor_website&utm_medium=web&utm_campaign=get_help_page)  
+- [History is Gay podcast](https://www.historyisgaypodcast.com)
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
 - [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
 - [Gender Spectrum ~ Parenting & Family](https://www.genderspectrum.org/explore-topics/parenting-and-family/)
