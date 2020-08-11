@@ -54,18 +54,18 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 - [Encircle (Provo)](www.EncircleTogether.org) center with events for LGBTQ teens and families
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
 
-## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City metropolis)
+## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City or northern Utah)
 
-- [Encircle](www.EncircleTogether.org)
-- [Equality Utah](www.equalityutah.org)
 - [HRC Utah](www.hrcutah.org)
-- [Utah Pride Center](https://utahpridecenter.org)
+- [Utah Pride Center (SLC)](https://utahpridecenter.org)
+- [Encircle (SLC)](https://encircletogether.org)
+- [Equality Utah](www.equalityutah.org)
 - [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) supports inclusive education and schools
 - [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
 - [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
 - [National Center for Transgender Equality, Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
+- [Rebirth OBGYN, Transgender Health (SLC)](https://www.rebirthobgyn.com/services/transgender-health) 
 - [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)
-- [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health) 
 
 ## 🏳️‍🌈 Online Classes, Reports, Articles & Resources 
 
