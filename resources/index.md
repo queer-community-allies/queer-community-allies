@@ -3,23 +3,7 @@ title: Local Resources
 menu-title: Local Resources
 ---
 
-Do you know of some local teen queer-affirming service providers in north Utah County or south Salt Lake County? Educators? Spaces? Coaches? Dentists? Job sites? Doctors? Pools? Therapists? Hangout spots? Let us know via our contact page! We'll check them out and add them here! 
-
-## 🏳️‍🌈 Local Support Groups & Organizations
-
-- [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties, sponsored by the Pride Center and Encircle
-- [Mama Dragons](https://mamadragons.org) support group for moms with LGBTQIA+ youth
-- [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads with LGBTQIA+ youth
-- [Gender Bands (Orem)](https://www.genderbands.org) funding for trans surgeries and weekly meetups for trans teens and adults
-- [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
-- [Encircle (Provo)](www.EncircleTogether.org) center with events for LGBTQ teens and families
-- [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
-
-## 🏳️‍🌈 Local Therapists
-
-- [The LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html) therapist directory searchable by location, services, specialties, insurance, and languages
-- [Flourish Therapy (Provo)](https://flourishtherapy.org)
-- [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
+Do you know of some teen queer-affirming service providers in north Utah County or south Salt Lake County? Let us know via our contact page! We'll check them out and add them here! 
 
 ## 🏳️‍🌈 Online Glossaries of Queer Terms
 
@@ -29,6 +13,27 @@ Do you know of some local teen queer-affirming service providers in north Utah C
 - [PFLAG ~ National Glossary of Terms](https://pflag.org/glossary?fbclid=IwAR35pBB0uTPRBIRJiqZN3XIaqHkvBITuZp8_SeCIubZTYzPqGUdxIRL2w3U)
 - [Trevor Support Center ~ FAQ & Glossary](https://www.thetrevorproject.org/resources/trevor-support-center/) 
 - [University of Wisconsin Milwaukee ~ Gender Pronouns](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
+
+## 🏳️‍🌈 Local Affirming Workplaces for Teens
+
+- List under construction
+
+## 🏳️‍🌈 Local Affirming Teams, Hobby & Interest Groups, and Hangout Spots for Teens 
+
+- List under construction
+
+## 🏳️‍🌈 Local Affirming Health Providers for Teens
+
+- List under construction
+
+## 🏳️‍🌈 Local Therapists for Teens 
+
+- [The LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html) therapist directory searchable by location, services, specialties, insurance, and languages
+- [Flourish Therapy (Provo)](https://flourishtherapy.org)
+- [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
+
+## 🏳️‍🌈 Scholarships
+ - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
 
 ## 🏳️‍🌈 Helpful resources for prospective & current GSA clubs...
 
@@ -45,10 +50,17 @@ Do you know of some local teen queer-affirming service providers in north Utah C
 - [GSA Network ~ Dealing with Hostility & Opposition](https://gsanetwork.org/resources/dealing-with-hostility-opposition/)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
-## 🏳️‍🌈 Scholarships
- - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
+## 🏳️‍🌈 Local Teen & Family Support Groups and Nonprofits 
 
-## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City/Salt Lake County)
+- [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties, sponsored by the Pride Center and Encircle
+- [Mama Dragons](https://mamadragons.org) support group for moms with LGBTQIA+ youth
+- [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads with LGBTQIA+ youth
+- [Gender Bands (Orem)](https://www.genderbands.org) funding for trans surgeries and weekly meetups for trans teens and adults
+- [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
+- [Encircle (Provo)](www.EncircleTogether.org) center with events for LGBTQ teens and families
+- [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) flags for special LGBT days of the year
+
+## 🏳️‍🌈 Additional Organizations & Resources (Salt Lake City metropolis)
 
 - [Encircle](www.EncircleTogether.org)
 - [Equality Utah](www.equalityutah.org)
