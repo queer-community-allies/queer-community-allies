@@ -5,7 +5,7 @@ title: Welcome
 
 ## Stay connected while social distancing! 
 
-#StayAtHomeChallenge #SafeHands #TogetherAtHome #CoronaKindness #QuarantineAndChill 
+#SafeHands #CoronaKindness #BacktoSchool2020 #SafeatSchool #COVID19  
 
 - Know of some upcoming virtual events? Let us know! contact(at)queercommunityallies(dot)org 
 - GLBT National Youth Talkline provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 1-800-246-7743 & [https://www.glbtonline.org](https://www.glbtonline.org) 
