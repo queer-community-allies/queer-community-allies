@@ -37,7 +37,7 @@ October National LGBT History Month
 
 October 11 National Coming Out Day
 
-October 20 Spirit Day ~ wear purple in a stand against bullying and to show  support for lesbian, gay, bisexual, and transgender (LGBT) youth
+October 20 Spirit Day 
 
 October 26 Intersex Awareness Day
 
