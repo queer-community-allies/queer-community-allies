@@ -48,6 +48,7 @@ List under construction
 Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center. The center can help you identify local resources, support groups, & scholarships! [lgtbcampus.org](https://www.lgbtcampus.org/find-an-lgbtq-campus-center)
 
  - [Campus Pride](https://www.campuspride.org/about/)
+ - [The American Anthropological Association Kenneth W. Payne Student Prize](http://queeranthro.org/awards/the-kenneth-w-payne-student-prize/)
  - Equality Leadership Fund Scholarship; awards $1000 to Utah students persuing secondary education who have demonstrated leadership in advancing equality for LGBT people. [utahcf.org](http://utahcf.org/apply-for-support/student-scholarships) 
  - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
  - The Jeff Iorilla And Roel Hinojosa Scholarship For Liberal Arts [internationalscholarships.com](https://www.internationalscholarships.com/1302/The-Jeff-Iorilla-And-Roel-Hinojosa-Scholarship-For-Liberal-Arts)
