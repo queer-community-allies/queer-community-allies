@@ -97,6 +97,7 @@ List under construction
 - [Gender Spectrum ~ Faith](https://www.genderspectrum.org/resources/faith-2/)
 - [History is Gay podcast](https://www.historyisgaypodcast.com)
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+- [More than Sad, AFSP ~ High school students, Parents, Teachers](https://afsp.org/more-than-sad) 
 - [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
 - [The Trevor Project](https://www.thetrevorproject.org)
 - [TrevorSpace](https://www.trevorspace.org/?utm_source=trevor_website&utm_medium=web&utm_campaign=get_help_page)  
