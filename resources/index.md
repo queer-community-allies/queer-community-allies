@@ -45,7 +45,12 @@ List under construction
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
 ## 🏳️‍🌈 Scholarships
+ - Equality Leadership Fund Scholarship; awards $1000 to Utah students persuing secondary education who have demonstrated leadership in advancing equality for LGBT people. [utahcf.org](http://utahcf.org/apply-for-support/student-scholarships) 
  - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
+ - PFLAG Salt Lake City; funds five $1000 to students entering college. Email for more information slcpflag(at)gmail.com
+ - USU Scholarship for LGBT Students; funds scholarships for full-time undergrad or grad USU students who are LGBT or supportive and actively engaged in service to the LGBT community. [usu.edu/adc](https://accesscenter.usu.edu/adc/scholarshipresources)
+ - WSU Matthew Shepard Scholarship; funds needs-based scholarship for WSU student (sophomore or beyond) who openly supports GLB individuals. [weber.edu/matthewshepard](http://organizations.weber.edu/matthewshepard/) 
+ - Youth Activist Scholarship, ACLU of Utah; the students are selected based not only on their activism, but also their academic excellence, leadership and tenacity in overcoming personal hardship; the recipients will each receive a $1,000 scholarship, in recognition of their commitment to civil liberties through activism. [acluutah.org/resources](http://www.acluutah.org/resources/itemlist/category/68-youth-activist-scholarship)
  
 ## 🏳️‍🌈 Nearby Teen & Family Support  
 
