@@ -45,11 +45,18 @@ List under construction
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
 ## 🏳️‍🌈 Scholarships
+Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center. The center can help you identify local resources, support groups, & scholarships! 
+
+ - [Campus Pride](https://www.campuspride.org/about/)
  - Equality Leadership Fund Scholarship; awards $1000 to Utah students persuing secondary education who have demonstrated leadership in advancing equality for LGBT people. [utahcf.org](http://utahcf.org/apply-for-support/student-scholarships) 
+ - Fast Web compiled list [fastweb.com/financial-aid](https://www.fastweb.com/financial-aid/articles/financial-aid-for-lesbian-gay-bisexual-and-transgender-students)
  - [HRC LGBTQ Student Scholarship Database](https://www.hrc.org/resources/scholarship-database)
+ - The Jeff Iorilla And Roel Hinojosa Scholarship For Liberal Arts [internationalscholarships.com](https://www.internationalscholarships.com/1302/The-Jeff-Iorilla-And-Roel-Hinojosa-Scholarship-For-Liberal-Arts)
  - PFLAG Salt Lake City; funds five $1000 to students entering college. Email for more information slcpflag(at)gmail.com
+ - Point Foundation, a national LGBT scholarship fund [pointfoundation.org](https://pointfoundation.org/point-apply/apply-now/)
+ - University of Utah LGBT Resource Center Scholarships; the LGBT Resource Center awards multiple scholarships to students (undergraduate or graduate) every Spring semester; these awards recognize students who are committed to supporting LGBTQIA+ communities and who have demonstrated academic, leadership, professional, and/or personal accomplishments; amount of awards are typically $2,000-$3,500. [lgbt.utah.edu](https://lgbt.utah.edu/resources/scholarships.php)
  - USU Scholarship for LGBT Students; funds scholarships for full-time undergrad or grad USU students who are LGBT or supportive and actively engaged in service to the LGBT community. [usu.edu/adc](https://accesscenter.usu.edu/adc/scholarshipresources)
- - WSU Matthew Shepard Scholarship; funds needs-based scholarship for WSU student (sophomore or beyond) who openly supports GLB individuals. [weber.edu/matthewshepard](http://organizations.weber.edu/matthewshepard/) 
+ - WSU Matthew Shepard Scholarship; funds needs-based scholarship for WSU student (sophomore or beyond) who openly supports GLB individuals. [weber.edu/matthewshepard](https://www.weber.edu/lgbtresourcecenter/Matthew_Shepard_Scholarship.html) 
  - Youth Activist Scholarship, ACLU of Utah; the students are selected based not only on their activism, but also their academic excellence, leadership and tenacity in overcoming personal hardship; the recipients will each receive a $1,000 scholarship, in recognition of their commitment to civil liberties through activism. [acluutah.org/resources](http://www.acluutah.org/resources/itemlist/category/68-youth-activist-scholarship)
  
 ## 🏳️‍🌈 Nearby Teen & Family Support  
@@ -102,6 +109,7 @@ List under construction
 - [Gender Spectrum ~ Faith](https://www.genderspectrum.org/resources/faith-2/)
 - [History is Gay podcast](https://www.historyisgaypodcast.com)
 - [Human Rights Campaign (HRC) ~ Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+- [It Gets Better Project](https://itgetsbetter.org)
 - [More than Sad, AFSP ~ High school students, Parents, Teachers](https://afsp.org/more-than-sad) 
 - [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
 - [The Trevor Project](https://www.thetrevorproject.org)
