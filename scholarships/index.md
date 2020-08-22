@@ -1,6 +1,5 @@
 ---
 title: Scholarships
-menu-title: Scholarships
 ---
 
 
