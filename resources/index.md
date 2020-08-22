@@ -22,7 +22,7 @@ List under construction
 
 List under construction
 
-- [Rainbow Mutual](http://www.rainbowmutual.org) events for teens, held throughout Utah and Salt Lake counties 
+- [Rainbow Mutual](http://www.rainbowmutual.org)   
 - [Third Space Studios (Provo)](https://www.facebook.com/thirdspaceprovo/) 
 
 ## 🏳️‍🌈 Nearby Health Providers & Therapists for Teens
@@ -45,9 +45,7 @@ List under construction
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
 ## 🏳️‍🌈 Scholarships
-Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center. The center can help you identify local resources, support groups, & scholarships! [lgtbcampus.org](https://www.lgbtcampus.org/find-an-lgbtq-campus-center)
-
-[Scholarships we've found for LGBTQ teens](/scholarships) 
+Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center. A center can help you identify local resources, support groups, & scholarships! [Scholarships we've found for LGBTQ teens](/scholarships) 
  
 ## 🏳️‍🌈 Nearby Teen & Family Support  
 
