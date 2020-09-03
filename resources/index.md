@@ -31,7 +31,7 @@ List under construction
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
 
-## 🏳️‍🌈 Helpful resources for prospective & current GSA clubs...
+## 🏳️‍🌈 Help for School Clubs
 
 - [GSA Network ~ What is a GSA club?](https://gsanetwork.org/what-is-a-gsa/) 
 - [ACLU ~ How to Start a Gay-Straight Alliance (GSA)](https://www.aclu.org/other/how-start-gay-straight-alliance-gsa) 
