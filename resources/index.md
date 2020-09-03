@@ -47,7 +47,7 @@ List under construction
 ## 🏳️‍🌈 Scholarships
 Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center. A center can help you identify local resources, support groups, & scholarships! [Scholarships we've found for LGBTQ teens](/scholarships) 
 
-## 🏳️‍🌈 Nearby Teen Volunteer Opps 
+## 🏳️‍🌈 Nearby Teen Volunteer Opportunities 
 
 List under construction
 
