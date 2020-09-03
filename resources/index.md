@@ -45,7 +45,7 @@ List under construction... Do you know of some teen queer-affirming groups or sp
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
 ## 🏳️‍🌈 Scholarships
-Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center; a center can help you identify local resources, support groups, & scholarships. [Click here for a list of scholarships we've found for LGBTQ+ teens.](/scholarships) 
+A great way to start looking for scholarships is to check whether a prospective university/college/school has a LGBTQ resource center; a center can help you identify local resources, support groups, & scholarships. [Click here for a list of scholarships we've found for LGBTQ+ teens.](/scholarships) 
 
 ## 🏳️‍🌈 Nearby Teen Volunteer Opportunities 
 
