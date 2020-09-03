@@ -29,6 +29,7 @@ List under construction
 
 - [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
+- [Healing Steps Counseling (Lehi)](http://www.healingstepsutah.com/)
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
 
 ## 🏳️‍🌈 Help for School Clubs
