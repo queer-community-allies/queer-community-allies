@@ -16,17 +16,6 @@ Or shop our storefront! [QueerCommunityAllies at Zazzle.com](https://www.zazzle.
 
 
 
-
-## A big thank you to local businesses that support Queer Community Allies
-
-- American Name Services
-- Backyard Bookkeeper
-- Beans & Brews 
-- Coffee Creations 
-- Shirtbatter
-- YogaVega
-
-
 Our EIN is `84-2519026`
 
 
