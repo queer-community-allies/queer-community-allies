@@ -19,9 +19,6 @@ Our 2020-2021 Board
 Contact us if you want to get involved! We are currently a tiny organization with limited volunteer opportunities aside from joining the board to organize efforts. Due to the COVID-19 epidemic, our service opportunities are even more limited. We welcome adults 18+ who can pass a background check and who are creative and willing to devote a few hours each month. We have existed for just over a year and to date have raised almost $3,000 in donations. 
 
 
-Our origins...
-
-Queer Community Allies started in the spring of 2019 as a plan among friends in a social media group to support the local high school GSA (gay straight alliance). Reeling from news of more local queer teen deaths and more local queer bullying, Christine (she/her) and Sarah (she/her, they/their) were talking and trying to organize with their friends to donate time and money to the high school club. They wanted to show teens that they had support in the larger community and raise the level of acceptance in their predominantly anti-LGBTQIA+ cities. After some productive conversations, Christine and Sarah deciding to spend the next few weeks turning these ideas into the paperwork necessary to recognize Queer Community Allies as a non-profit corporation by the State of Utah.   
 
 > My goal for this organization is to create a safe space for all Queer teens within their own communities. I want to get local resources working together as a united front so that these kids can leave their homes knowing people care and will protect them. I also want to identify where additional resources are needed and provide them. My dream is to have a space where teens can come hang out, do homework, get therapy and just be kids. I want to create that space so that all teens can have normal childhood experiences. We’ll have a pool so trans kids can swim and be themselves SAFELY! That is my dream. ~Christine 
 
