@@ -46,7 +46,13 @@ List under construction
 
 ## 🏳️‍🌈 Scholarships
 Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center. A center can help you identify local resources, support groups, & scholarships! [Scholarships we've found for LGBTQ teens](/scholarships) 
- 
+
+## 🏳️‍🌈 Nearby Teen Volunteer Opps 
+
+List under construction
+
+- [Project Rainbow](https://www.projectrainbowutah.org/volunteer)
+
 ## 🏳️‍🌈 Nearby Teen & Family Support  
 
 - [Encircle (Provo)](www.EncircleTogether.org) center with events & therapy for LGBTQ teens and families
