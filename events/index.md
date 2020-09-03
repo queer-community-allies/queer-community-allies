@@ -11,3 +11,14 @@ Check out our Instagram & Facebook pages for photos from fun past events! (Kicko
 
 
 Queer Community Allies is a mobile support system (and we don't get enough funds yet to have a physical space), so we only occasionally host events. If you want to be involved and help plan events, AND know of a free or inexpensive place to host them, please reach out and let us know! We're always looking for volunteers who can invest multiple hours each month to help run on-going projects. 
+
+
+## A big thank you to local businesses that have supported Queer Community Allies and our events in the past! 
+
+- American Name Services
+- Backyard Bookkeeper
+- Beans & Brews 
+- Coffee Creations 
+- Shirtbatter
+- YogaVega
+
