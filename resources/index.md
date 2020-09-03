@@ -56,12 +56,12 @@ List under construction
 
 ## 🏳️‍🌈 Nearby Teen & Family Support  
 
-- [Encircle (Provo)](www.EncircleTogether.org) center with events & therapy for LGBTQ teens and families
-- [Dragon Dads](https://www.facebook.com/DragonDads/) support group for dads of LGBTQIA+ children
-- [Gender Bands (Orem)](https://www.genderbands.org) center for trans teens and adults
-- [Mama Dragons](https://mamadragons.org) support group for moms of LGBTQIA+ children
+- [Encircle (Provo)](www.EncircleTogether.org)  
+- [Dragon Dads](https://www.facebook.com/DragonDads/)  
+- [Gender Bands (Orem)](https://www.genderbands.org)  
+- [Mama Dragons](https://mamadragons.org) 
 - [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
-- [Queer Meals (Provo)](http://queermeals.com) family meals in a safe space for queer teens and young adults
+- [Queer Meals (Provo)](http://queermeals.com)  
 
 ## 🏳️‍🌈 Additional Teen, Young Adult & Family Support
 
