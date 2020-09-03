@@ -3,7 +3,6 @@ title: Resources
 menu-title: Resources
 ---
 
-Do you know of some teen queer-affirming service providers in north Utah County or south Salt Lake County? Reach out and let us know! 
 
 ## 🏳️‍🌈 Online Glossaries of Queer Terms
 
@@ -16,11 +15,11 @@ Do you know of some teen queer-affirming service providers in north Utah County 
 
 ## 🏳️‍🌈 Nearby Workplaces for Teens
 
-List under construction
+List under construction... Do you know of some teen queer-affirming workplaces in north Utah County or south Salt Lake County? 
 
 ## 🏳️‍🌈 Nearby Teams, Hobby & Interest Groups, and Hangout Spots for Teens 
 
-List under construction
+List under construction... Do you know of some teen queer-affirming groups or spots in north Utah County or south Salt Lake County? 
 
 - [Rainbow Mutual](http://www.rainbowmutual.org)   
 - [Third Space Studios (Provo)](https://www.facebook.com/thirdspaceprovo/) 
@@ -46,11 +45,11 @@ List under construction
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
 ## 🏳️‍🌈 Scholarships
-Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center. A center can help you identify local resources, support groups, & scholarships! [Click here for a list of scholarships we've found for LGBTQ+ teens.](/scholarships) 
+Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center; a center can help you identify local resources, support groups, & scholarships. [Click here for a list of scholarships we've found for LGBTQ+ teens.](/scholarships) 
 
 ## 🏳️‍🌈 Nearby Teen Volunteer Opportunities 
 
-List under construction
+List under construction... Do you know of some teen service opportunities in north Utah County or south Salt Lake County? 
 
 - [Project Rainbow](https://www.projectrainbowutah.org/volunteer)
 
