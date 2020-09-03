@@ -17,7 +17,7 @@ Community ally who wants to support? Include a "classroom decor" note with a [do
 
 ## Community Events
 
-We love going to Pride, joining other organizations at various city community nights, being involved with other local youth efforts like Communities That Care, and hosting events to talk with educators and parents who want to learn more about supporting their queer family members, students, and comunity youth. 
+We love going to Pride, joining other organizations at various city community nights, being involved with other local youth efforts, and hosting events to talk with educators and parents who want to learn more about supporting their queer family members, students, and comunity youth. 
 
 ## Community Swag
 
