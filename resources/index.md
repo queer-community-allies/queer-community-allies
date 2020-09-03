@@ -46,7 +46,7 @@ List under construction
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
 ## 🏳️‍🌈 Scholarships
-Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center. A center can help you identify local resources, support groups, & scholarships! [Scholarships we've found for LGBTQ teens](/scholarships) 
+Looking for a scholarship? A great place to start is checking whether the university/college/school has a LGBTQ resource center. A center can help you identify local resources, support groups, & scholarships! [Click here for a list of scholarships we've found for LGBTQ+ teens.](/scholarships) 
 
 ## 🏳️‍🌈 Nearby Teen Volunteer Opportunities 
 
@@ -63,14 +63,14 @@ List under construction
 - [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
 - [Queer Meals (Provo)](http://queermeals.com)  
 
-## 🏳️‍🌈 Additional Teen, Young Adult & Family Support
+## 🏳️‍🌈 Additional Teen & Family Support
 
-[LGBTQ+ teen and family support groups in Salt Lake City and/or Northern Utah](/utsupportservices)
+[Click here for a list of LGBTQ+ teen and family support groups in Salt Lake City/Northern Utah](/utsupportservices)
 
 
-## 🏳️‍🌈 Additional Organizations & Services (Salt Lake City/northern Utah)
+## 🏳️‍🌈 Additional Organizations & Services 
 
-[Equality organizations and LGBTQ+ teen services in Salt Lake City and/or Northern Utah](/utsupportservices)
+[Click here for a list of LGBTQ+ organizations and teen services in Salt Lake City/Northern Utah](/utsupportservices)
 
 ## 🏳️‍🌈 Additional Online Resources, Spaces, Podcasts, & Information 
 
@@ -92,7 +92,4 @@ List under construction
 - [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
 - [The Trevor Project](https://www.thetrevorproject.org)
 - [TrevorSpace](https://www.trevorspace.org/?utm_source=trevor_website&utm_medium=web&utm_campaign=get_help_page)  
-
-![Image source: San Francisco State University Family Acceptance Project](/files/Acceptance_Poster_website.jpg)
-
-Image source: San Francisco State University [Family Acceptance Project](https://familyproject.sfsu.edu)
+ 
