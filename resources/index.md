@@ -64,9 +64,10 @@ A great way to start looking for scholarships is to check whether a prospective 
 
 ## 🏳️‍🌈 For Teachers
 We get asked all the time, "How can I make my classroom/space more LGBTQ friendly?" and "What resources do I have as a teacher?" 
-- Idea: Introduce yourself with your pronouns to your students and coworkers
-- Idea: Put just one rainbow sticker somewhere in your space, or wear a rainbow pin on your lanyard
+- Idea: Introduce yourself with your pronouns to your students and coworkers.
+- Idea: Put just one rainbow sticker somewhere in your space, or wear a rainbow pin on your lanyard.
 - There are lots of ways to show allyship! Find something that feels true to you. 
+- Did you know? [News: Utah Repeals 'No Promo Homo' Law](https://www.hrw.org/news/2017/03/21/utah-repeals-no-promo-homo-law) 
 - [GLSEN Educator Resources](https://www.glsen.org/resources/educator-resources)
 - [Harvard Graduate School of Education Making Caring Common Project: Supporting LGBTQIA Youth Resource List](https://mcc.gse.harvard.edu/resources-for-educators/supporting-lgbtqia-youth-resource-list)  
 - [LGBTQ History.Org Teaching Instructional Resources](http://www.lgbtqhistory.org/lgbtq-educational-resources/) 
