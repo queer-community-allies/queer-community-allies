@@ -13,6 +13,13 @@ menu-title: Resources
 - [UC Davis ~ LGBTQIA Resource Center Glossary](https://lgbtqia.ucdavis.edu/educated/glossary?fbclid=IwAR2oeHVRlGOWoJ_CiwzkxRTjaeR1GZJcZEmq_PgvSb9EAywPr4-0W-CDD-0)
 - [University of Wisconsin Milwaukee ~ Gender Pronouns](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
 
+## 🏳️‍🌈 Nearby Health Providers & Therapists for Teens
+
+- [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
+- [Flourish Therapy (Provo)](https://flourishtherapy.org)
+- [Healing Steps Counseling (Lehi)](http://www.healingstepsutah.com/)
+- [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
+
 ## 🏳️‍🌈 Nearby Workplaces for Teens
 
 List under construction... Do you know of some teen queer-affirming workplaces in north Utah County or south Salt Lake County? 
@@ -24,12 +31,11 @@ List under construction... Do you know of some teen queer-affirming groups or sp
 - [Rainbow Mutual](http://www.rainbowmutual.org)   
 - [Third Space Studios (Provo)](https://www.facebook.com/thirdspaceprovo/) 
 
-## 🏳️‍🌈 Nearby Health Providers & Therapists for Teens
+## 🏳️‍🌈 Nearby Teen Volunteer Opportunities 
 
-- [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
-- [Flourish Therapy (Provo)](https://flourishtherapy.org)
-- [Healing Steps Counseling (Lehi)](http://www.healingstepsutah.com/)
-- [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
+List under construction... Do you know of some teen service opportunities in north Utah County or south Salt Lake County? 
+
+- [Project Rainbow](https://www.projectrainbowutah.org/volunteer)
 
 ## 🏳️‍🌈 Help for School Clubs
 
@@ -47,12 +53,6 @@ List under construction... Do you know of some teen queer-affirming groups or sp
 ## 🏳️‍🌈 Scholarships
 A great way to start looking for scholarships is to check whether a prospective university/college/school has a LGBTQ resource center; a center can help you identify local resources, support groups, & scholarships. [Click here for a list of scholarships we've found for LGBTQ+ teens.](/scholarships) 
 
-## 🏳️‍🌈 Nearby Teen Volunteer Opportunities 
-
-List under construction... Do you know of some teen service opportunities in north Utah County or south Salt Lake County? 
-
-- [Project Rainbow](https://www.projectrainbowutah.org/volunteer)
-
 ## 🏳️‍🌈 Nearby Teen & Family Support  
 
 - [Encircle (Provo)](www.EncircleTogether.org)  
@@ -61,6 +61,17 @@ List under construction... Do you know of some teen service opportunities in nor
 - [Mama Dragons](https://mamadragons.org) 
 - [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
 - [Queer Meals (Provo)](http://queermeals.com)  
+
+## 🏳️‍🌈 For Teachers
+We get asked all the time, "How can I make my classroom/space more LGBTQ friendly?" and "What resources do I have as a teacher?" 
+- Idea: Introduce yourself with your pronouns to your students and coworkers
+- Idea: Put just one rainbow sticker somewhere in your space, or wear a rainbow pin on your lanyard
+- There are lots of ways to show allyship! Find something that feels true to you. 
+- [GLSEN Educator Resources](https://www.glsen.org/resources/educator-resources)
+- [Harvard Graduate School of Education Making Caring Common Project: Supporting LGBTQIA Youth Resource List](https://mcc.gse.harvard.edu/resources-for-educators/supporting-lgbtqia-youth-resource-list)  
+- [LGBTQ History.Org Teaching Instructional Resources](http://www.lgbtqhistory.org/lgbtq-educational-resources/) 
+- [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
+- (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
 
 ## 🏳️‍🌈 Additional Teen & Family Support
 
