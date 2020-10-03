@@ -2,12 +2,14 @@
 title: Welcome
 ---
 
+## October is National LGBT History Month! 
+
+Watch for flags across Utah via [Project Rainbow](https://www.projectrainbowutah.org)! Enjoy the [Utah Pride Road Rally](https://utahpridecenter.org/pride-and-center/road-rally) on Sunday Oct 11th (National Coming Out Day)! Utah Pride Center is hosting a Youth Pride online on October 10th 7-10pm (register [here](https://forms.office.com/Pages/ResponsePage.aspx?id=svWWKgk_Zk6glBnRGPiyOugKSKV_9LdMhvfHFlWPJARUMVFTQ0xDQVVOMVlHNlc3WDAxTjJBRllCUCQlQCN0PWcu); you must have already attended Pride online events to sign up). Read more about the history of October as Pride Month at [Wikipedia LGBTQ History Month](https://en.wikipedia.org/wiki/LGBT_History_Month)! 
 
 ## Stay connected while social distancing! 
 
 #SafeHands #CoronaKindness #BacktoSchool2020 #SafeatSchool #COVID19  
 
-- Know of some upcoming virtual events? Let us know! contact(at)queercommunityallies(dot)org 
 - GLBT National Youth Talkline provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 1-800-246-7743 & [https://www.glbtonline.org](https://www.glbtonline.org) 
 - Utah Pride Center Youth online support groups for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for a participant ID and access to a group. [Follow them online](https://utahpridecenter.org/programs/youth-family-programs/) for more details. 
 - Encircle is doing live group meets! Check out their YouTube channel for videos and follow them online for updates. 
@@ -29,10 +31,6 @@ title: Welcome
 
 ## Upcoming LGBTQIA+ Dates
 
-September 23 Bisexuality Day 
-
-September 17-23 Bisexual Awareness Week
-
 October National LGBT History Month 
 
 October 11 National Coming Out Day
@@ -44,6 +42,17 @@ October 26 Intersex Awareness Day
 October 22-28 Asexual Awareness Week
 
 See a full list at [Wright State University Office of LGBTQA Affairs](https://www.wright.edu/diversity-and-inclusion/culture-and-identity-centers/lgbtqa-affairs/international-lgbtqa-dates-to-know)
+
+
+## A big thank you to local businesses that supported Queer Community Allies & GSAs in 2019 & 2020! 
+
+- American Name Services
+- Backyard Bookkeeper
+- Beans & Brews 
+- Coffee Creations 
+- Mojo Printing 
+- Shirtbatter
+- YogaVega
 
 ![we'll be your village](files/rainbow-banner.jpeg)
 
