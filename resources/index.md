@@ -85,13 +85,23 @@ We get asked all the time, "How can I make my classroom/space more LGBTQ friendl
 
 
 ## 🏳️‍🌈 Booklist - Teens + Kids 
-- [Some of our favorite books!](/resources/booklist.html)
+[Some of our favorite books!](/resources/booklist.html)
+
+
+## 🏳️‍🌈 Local Affirming Businesses
+
+- Backyard Bookkeeper
+- Beans & Brews 
+- Coffee Creations 
+- Cravings Alisha's Cupcakes 
+- Mojo Printing 
+- Shirtbatter
+- YogaVega
 
 
 ## 🏳️‍🌈 Additional Teen & Family Support, Organizations & Services 
 
-[LGBTQ+ teen and family support groups in Salt Lake City/Northern Utah](/utsupportservices)
-[LGBTQ+ organizations and teen services in Salt Lake City/Northern Utah](/utsupportservices)
+[LGBTQ+ teen and family support groups/organizations & services -- Salt Lake City/Northern Utah](/utsupportservices)
 
 
 ## 🏳️‍🌈 Additional Online Resources, Spaces, Podcasts, & Information 
