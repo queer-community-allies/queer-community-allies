@@ -4,25 +4,35 @@ title: Booklist
 
 ## YA Novels & Nonfiction 
 - [Aristotle and Dante Discover the Secrets of the Universe](https://bookshop.org/books/aristotle-and-dante-discover-the-secrets-of-the-universe/9781442408937) by Benjamin Alire Sáenz
-- Call Down the Hawk
-- Darius the Great is Not Okay
-- The Gentleman’s Guide to Vice and Virtue
-- The Grief Keeper
-- I Was Born for This
-- The Inexplicable Logic of My Life
-- Let’s Talk About Love
+- [Darius the Great is Not Okay](https://bookshop.org/books/darius-the-great-is-not-okay/9780525552970) by Adib Khorram
+- [The Gentleman’s Guide to Vice and Virtue](https://bookshop.org/books/the-gentleman-s-guide-to-vice-and-virtue/9780062382818) by Mackenzi Lee
+- [The Gravity of Us](https://bookshop.org/books/the-gravity-of-us/9781547600144) by Phil Stamper
+- [The Grief Keeper](https://bookshop.org/books/the-grief-keeper/9780525514022) by Alexandra Villasante 
+- [Hot Dog Girl](https://bookshop.org/books/hot-dog-girl/9780525516279) by Jennifer Dugan
+- [The Inexplicable Logic of My Life](https://bookshop.org/books/the-inexplicable-logic-of-my-life/9781328498021) by Benjamin Alire Saenz 
+- [Let’s Talk About Love](https://bookshop.org/books/let-s-talk-about-love/9781250294500) by Claire Kann
+- [Middle School’s a Drag, You Better Werk!](https://bookshop.org/books/middle-school-s-a-drag-you-better-werk/9780525517528) by Greg Howard
+- [To Night Owl From Dogfish](https://bookshop.org/books/to-night-owl-from-dogfish/9780525553243) by Holly Goldberg Sloan and Meg Wolitzer
 - [None of the Above](https://bookshop.org/books/none-of-the-above/9780062335326) by I. W. Gregorio
 - [Queens of Geek](https://bookshop.org/books/queens-of-geek/9781250111395) by Jen Wilde
 - [The Prince and the Dressmaker](https://bookshop.org/books/the-prince-and-the-dressmaker/9781626723634) by Jen Wang
 - [Simon vs. the Homo Sapiens Agenda](https://bookshop.org/books/simon-vs-the-homo-sapiens-agenda-9781467600705/9780062348685) by Becky Albertalli 
+- [They Both Die at the End](https://bookshop.org/books/they-both-die-at-the-end/9780062457806) by Adam Silvera
+- [We Are Okay](https://bookshop.org/books/we-are-okay/9780142422939) by Nina Lacour
+- [We Contain Multitudes](https://bookshop.org/books/we-contain-multitudes/9780316524650) by Sarah Henstra
+- [The Whispers](https://bookshop.org/books/the-whispers-9781984838407/9780525517511) by Greg Howard
+- [Zenobia July](https://bookshop.org/books/zenobia-july/9780451479402) by Lisa Bunker
 
-More lists! [Welcoming Schools HRC Diverse LGBTQ Inclusive Middle Grade Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Middle_Grade_Books_-_Family.pdf) 
+More lists! 
+[Bookshop.Org's LGBT teen list](https://bookshop.org/t/bisac/yaf/031000) 
+[Welcoming Schools HRC Diverse LGBTQ Inclusive Middle Grade Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Middle_Grade_Books_-_Family.pdf) 
 
 
 ## Board, Picture, & NonFiction Books 
 
 🏳️‍🌈 Board Books 
 - [Baby's First Words](https://www.amazon.com/Babys-First-Words-Stella-Blackstone/dp/1782853219), written by Stella Blackstone and Sunny Scribens & illustrated by Christiane Engel
+- [Daddy, Papa, and Me](https://bookshop.org/books/daddy-papa-and-me/9781582462622), written by Leslea Newman & illustrated by Carol Thompson
 - [Mommy, Mama and Me](https://bookshop.org/books/mommy-mama-and-me/9781582462639), written by Leslea Newman & illustrated by Carol Thompson
 - [My Two Dads and Me](https://bookshop.org/books/my-two-dads-and-me/9780525580102), written by Michael Joosten & illustrated by Izak Zenou 
 - [My Two Moms and Me](https://bookshop.org/books/my-two-moms-and-me/9780525580126), written by Michael Joosten & illustrated by Izak Zenou 
@@ -30,7 +40,9 @@ More lists! [Welcoming Schools HRC Diverse LGBTQ Inclusive Middle Grade Books](h
 - [Pride Colors](https://bookshop.org/books/pride-colors/9781459820708), written by Robin Stevenson
 
 🏳️‍🌈 Picture Books 
+More books! [Welcoming Schools HRC Diverse LGBTQ Inclusive Picture Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Picture_Books_-_Family.pdf)
 - [ABC: A Family Alphabet Book](https://bookshop.org/books/abc-a-family-alphabet-book/9780967446813), written by Bobbie Combs & illustrated by Desiree & Brian Rappa
+- [Auntie Uncle: Drag Queen Hero](https://bookshop.org/books/auntie-uncle-drag-queen-hero/9781576879351), written by Ellie Royce & illustrated by Hannah Chambers
 - [The Bravest Knight Who Ever Lived](https://bookshop.org/books/the-bravest-knight-who-ever-lived/9780764356902), written by Daniel Errico & illustrated by Shiloh Penfield 
 - [Bunnybear](https://bookshop.org/books/bunnybear/9780807509388), written by Andrea J. Loney & illustrated by Carmen Saldaña 
 - [A Church for All](https://bookshop.org/books/a-church-for-all/9780807511794), written by Gayle E. Pitman & illustrated by Laure Fournier
@@ -74,8 +86,7 @@ More lists! [Welcoming Schools HRC Diverse LGBTQ Inclusive Middle Grade Books](h
 - [Be Amazing: A History of Pride](https://bookshop.org/books/be-amazing-a-history-of-pride/9780374312589), written by Desmond Napoles & illustrated by Dylan Glynn 
 - [Gay & Lesbian History for Kids: The Century-Long Struggle for Lgbt Rights, with 21 Activities](https://bookshop.org/books/gay-lesbian-history-for-kids-the-century-long-struggle-for-lgbt-rights-with-21-activities/9781613730829), written by Jerome Pohlen 
 - [Keith Haring: The Boy Who Just Kept Drawing](https://bookshop.org/books/keith-haring-the-boy-who-just-kept-drawing/9780525428190), written by Kay Haring & illustrated by Robert Neubecker
+- [Stonewall: A Building, an Uprising, a Revolution](https://bookshop.org/books/stonewall-a-building-an-uprising-a-revolution/9781524719524), written by Rob Sanders & illustrated by Jamey Christoph 
 - [What Was Stonewall?](https://bookshop.org/books/what-was-stonewall/9781524786007), written by Nico Medina and Who Hq & illustrated by Jake Murray
 - [Who Was Harvey Milk?](https://bookshop.org/books/who-was-harvey-milk/9781524792787), written by Corinne A. Grinapol and  Who Hq & illustrated by Gregory Copeland 
 
-
-More books! [Welcoming Schools HRC Diverse LGBTQ Inclusive Picture Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Picture_Books_-_Family.pdf)
