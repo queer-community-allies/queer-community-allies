@@ -27,7 +27,7 @@ menu-title: Resources
 List under construction... Do you know of some teen queer-affirming workplaces in north Utah County or south Salt Lake County? 
 
 
-## 🏳️‍🌈 Nearby Teams, Hobby & Interest Groups, and Hangout Spots for Teens 
+## 🏳️‍🌈 Nearby Teams, Interest Groups & Hangout Spots for Teens 
 
 List under construction... Do you know of some teen queer-affirming groups or spots in north Utah County or south Salt Lake County? 
 
@@ -83,7 +83,7 @@ We get asked all the time, "How can I make my classroom/space more LGBTQ friendl
 - (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
 
 
-## 🏳️‍🌈 Booklist - Teens+kids 
+## 🏳️‍🌈 Booklist - Teens + Kids 
 - [Some of our favorite books!](/resources/booklist.html)
 
 
