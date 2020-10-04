@@ -71,7 +71,7 @@ List under construction... Do you know of some teen service opportunities in nor
 
 
 ## 🏳️‍🌈 For Teachers
-We get asked all the time, "How can I make my classroom/space more LGBTQ friendly?" and "What resources do I have as a teacher?" 
+
 - Idea: Introduce yourself with your pronouns to your students and coworkers.
 - Idea: Put just one rainbow sticker somewhere in your space, or wear a rainbow pin on your lanyard.
 - There are lots of ways to show allyship! Find something that feels true to you. 
