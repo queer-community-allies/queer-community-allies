@@ -74,6 +74,10 @@ We get asked all the time, "How can I make my classroom/space more LGBTQ friendl
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
 - (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
 
+## 🏳️‍🌈 Booklist: Picture Books, YA
+- [Some of our favorite books!](/resources/booklist.html)
+
+
 ## 🏳️‍🌈 Additional Teen & Family Support
 
 [Click here for a list of LGBTQ+ teen and family support groups in Salt Lake City/Northern Utah](/utsupportservices)
