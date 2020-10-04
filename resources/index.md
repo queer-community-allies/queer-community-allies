@@ -13,6 +13,7 @@ menu-title: Resources
 - [UC Davis ~ LGBTQIA Resource Center Glossary](https://lgbtqia.ucdavis.edu/educated/glossary?fbclid=IwAR2oeHVRlGOWoJ_CiwzkxRTjaeR1GZJcZEmq_PgvSb9EAywPr4-0W-CDD-0)
 - [University of Wisconsin Milwaukee ~ Gender Pronouns](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
 
+
 ## 🏳️‍🌈 Nearby Health Providers & Therapists for Teens
 
 - [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
@@ -20,9 +21,11 @@ menu-title: Resources
 - [Healing Steps Counseling (Lehi)](http://www.healingstepsutah.com/)
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
 
+
 ## 🏳️‍🌈 Nearby Workplaces for Teens
 
 List under construction... Do you know of some teen queer-affirming workplaces in north Utah County or south Salt Lake County? 
+
 
 ## 🏳️‍🌈 Nearby Teams, Hobby & Interest Groups, and Hangout Spots for Teens 
 
@@ -31,11 +34,13 @@ List under construction... Do you know of some teen queer-affirming groups or sp
 - [Rainbow Mutual](http://www.rainbowmutual.org)   
 - [Third Space Studios (Provo)](https://www.facebook.com/thirdspaceprovo/) 
 
+
 ## 🏳️‍🌈 Nearby Teen Volunteer Opportunities 
 
 List under construction... Do you know of some teen service opportunities in north Utah County or south Salt Lake County? 
 
 - [Project Rainbow](https://www.projectrainbowutah.org/volunteer)
+
 
 ## 🏳️‍🌈 Help for School Clubs
 
@@ -50,8 +55,10 @@ List under construction... Do you know of some teen service opportunities in nor
 - [GLSEN ~ Know Your Rights](https://www.glsen.org/knowyourrights)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
+
 ## 🏳️‍🌈 Scholarships
-A great way to start looking for scholarships is to check whether a prospective university/college/school has a LGBTQ resource center; a center can help you identify local resources, support groups, & scholarships. [Click here for a list of scholarships we've found for LGBTQ+ teens.](/scholarships) 
+[Here's a list of scholarships we've found for LGBTQ+ teens.](/scholarships) We recommend also checking whether your prospective university/college/school has a LGBTQ resource center; a center can help you identify local resources, support groups, & scholarships. 
+
 
 ## 🏳️‍🌈 Nearby Teen & Family Support  
 
@@ -61,6 +68,7 @@ A great way to start looking for scholarships is to check whether a prospective 
 - [Mama Dragons](https://mamadragons.org) 
 - [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
 - [Queer Meals (Provo)](http://queermeals.com)  
+
 
 ## 🏳️‍🌈 For Teachers
 We get asked all the time, "How can I make my classroom/space more LGBTQ friendly?" and "What resources do I have as a teacher?" 
@@ -74,18 +82,16 @@ We get asked all the time, "How can I make my classroom/space more LGBTQ friendl
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
 - (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
 
-## 🏳️‍🌈 Booklist: Picture Books, YA
+
+## 🏳️‍🌈 Booklist - Teens+kids 
 - [Some of our favorite books!](/resources/booklist.html)
 
 
-## 🏳️‍🌈 Additional Teen & Family Support
+## 🏳️‍🌈 Additional Teen & Family Support, Organizations & Services 
 
-[Click here for a list of LGBTQ+ teen and family support groups in Salt Lake City/Northern Utah](/utsupportservices)
+[LGBTQ+ teen and family support groups in Salt Lake City/Northern Utah](/utsupportservices)
+[LGBTQ+ organizations and teen services in Salt Lake City/Northern Utah](/utsupportservices)
 
-
-## 🏳️‍🌈 Additional Organizations & Services 
-
-[Click here for a list of LGBTQ+ organizations and teen services in Salt Lake City/Northern Utah](/utsupportservices)
 
 ## 🏳️‍🌈 Additional Online Resources, Spaces, Podcasts, & Information 
 
