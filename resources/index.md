@@ -79,6 +79,7 @@ We get asked all the time, "How can I make my classroom/space more LGBTQ friendl
 - [GLSEN Educator Resources](https://www.glsen.org/resources/educator-resources)
 - [Harvard Graduate School of Education Making Caring Common Project: Supporting LGBTQIA Youth Resource List](https://mcc.gse.harvard.edu/resources-for-educators/supporting-lgbtqia-youth-resource-list)  
 - [LGBTQ History.Org Teaching Instructional Resources](http://www.lgbtqhistory.org/lgbtq-educational-resources/) 
+- [SafeSpaceUT](https://safespaceut.com)
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
 - (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
 
