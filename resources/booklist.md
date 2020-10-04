@@ -21,13 +21,15 @@ More lists! [Welcoming Schools HRC Diverse LGBTQ Inclusive Middle Grade Books](h
 
 ## Board, Picture, & NonFiction Books 
 
+🏳️‍🌈 Board Books 
 - [Baby's First Words](https://www.amazon.com/Babys-First-Words-Stella-Blackstone/dp/1782853219), written by Stella Blackstone and Sunny Scribens & illustrated by Christiane Engel
 - [Mommy, Mama and Me](https://bookshop.org/books/mommy-mama-and-me/9781582462639), written by Leslea Newman & illustrated by Carol Thompson
 - [My Two Dads and Me](https://bookshop.org/books/my-two-dads-and-me/9780525580102), written by Michael Joosten & illustrated by Izak Zenou 
 - [My Two Moms and Me](https://bookshop.org/books/my-two-moms-and-me/9780525580126), written by Michael Joosten & illustrated by Izak Zenou 
 - [People of Pride: Harvey Milk](https://bookshop.org/books/harvey-milk/9781499810165), written by Little Bee Books & illustrated by Victoria Grace Elliott
 - [Pride Colors](https://bookshop.org/books/pride-colors/9781459820708), written by Robin Stevenson
-🏳️‍🌈 
+
+🏳️‍🌈 Picture Books 
 - [ABC: A Family Alphabet Book](https://bookshop.org/books/abc-a-family-alphabet-book/9780967446813), written by Bobbie Combs & illustrated by Desiree & Brian Rappa
 - [The Bravest Knight Who Ever Lived](https://bookshop.org/books/the-bravest-knight-who-ever-lived/9780764356902), written by Daniel Errico & illustrated by Shiloh Penfield 
 - [Bunnybear](https://bookshop.org/books/bunnybear/9780807509388), written by Andrea J. Loney & illustrated by Carmen Saldaña 
@@ -66,9 +68,9 @@ More lists! [Welcoming Schools HRC Diverse LGBTQ Inclusive Middle Grade Books](h
 - [This Day in June](https://bookshop.org/books/this-day-in-june/9781433816598), written by Gayle E. Pitman & illustrated by Kristyna Litten 
 - [When Aidan Became a Brother](https://bookshop.org/books/when-aidan-became-a-brother/9781620148372), written by Kyle Lukoff & illustrated by Kaylani Juanita
 - [Worm Loves Worm](https://bookshop.org/books/worm-loves-worm/9780062386335), written by J J Austrian & illustrated by Mike Curato
-🏳️‍🌈 
-More books! [Welcoming Schools HRC Diverse LGBTQ Inclusive Picture Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Picture_Books_-_Family.pdf)
-🏳️‍🌈 
+
+
+🏳️‍🌈 NonFiction
 - [Be Amazing: A History of Pride](https://bookshop.org/books/be-amazing-a-history-of-pride/9780374312589), written by Desmond Napoles & illustrated by Dylan Glynn 
 - [Gay & Lesbian History for Kids: The Century-Long Struggle for Lgbt Rights, with 21 Activities](https://bookshop.org/books/gay-lesbian-history-for-kids-the-century-long-struggle-for-lgbt-rights-with-21-activities/9781613730829), written by Jerome Pohlen 
 - [Keith Haring: The Boy Who Just Kept Drawing](https://bookshop.org/books/keith-haring-the-boy-who-just-kept-drawing/9780525428190), written by Kay Haring & illustrated by Robert Neubecker
@@ -76,3 +78,4 @@ More books! [Welcoming Schools HRC Diverse LGBTQ Inclusive Picture Books](https:
 - [Who Was Harvey Milk?](https://bookshop.org/books/who-was-harvey-milk/9781524792787), written by Corinne A. Grinapol and  Who Hq & illustrated by Gregory Copeland 
 
 
+More books! [Welcoming Schools HRC Diverse LGBTQ Inclusive Picture Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Picture_Books_-_Family.pdf)
