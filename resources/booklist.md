@@ -23,9 +23,7 @@ title: Booklist
 - [The Whispers](https://bookshop.org/books/the-whispers-9781984838407/9780525517511) by Greg Howard
 - [Zenobia July](https://bookshop.org/books/zenobia-july/9780451479402) by Lisa Bunker
 
-More lists! 
-[Bookshop.Org's LGBT teen list](https://bookshop.org/t/bisac/yaf/031000) 
-[Welcoming Schools HRC Diverse LGBTQ Inclusive Middle Grade Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Middle_Grade_Books_-_Family.pdf) 
+More lists! [Bookshop.Org's LGBT teen list](https://bookshop.org/t/bisac/yaf/031000), [Welcoming Schools HRC Diverse LGBTQ Inclusive Middle Grade Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Middle_Grade_Books_-_Family.pdf) 
 
 
 ## Board, Picture, & NonFiction Books 
