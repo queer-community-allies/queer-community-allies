@@ -4,7 +4,7 @@ title: Welcome
 
 ## October is National LGBT History Month! 
 
-Watch for flags across Utah via [Project Rainbow](https://www.projectrainbowutah.org)! Enjoy the [Utah Pride Road Rally](https://utahpridecenter.org/pride-and-center/road-rally) on Sunday Oct 11th (National Coming Out Day)! Utah Pride Center is hosting a Youth Pride online on October 10th 7-10pm (register [here](https://forms.office.com/Pages/ResponsePage.aspx?id=svWWKgk_Zk6glBnRGPiyOugKSKV_9LdMhvfHFlWPJARUMVFTQ0xDQVVOMVlHNlc3WDAxTjJBRllCUCQlQCN0PWcu); you must have already attended Pride online events to sign up). Read more about the history of October as Pride Month at [Wikipedia LGBTQ History Month](https://en.wikipedia.org/wiki/LGBT_History_Month)! 
+Read more about the history of October as Pride Month at [Wikipedia LGBTQ History Month](https://en.wikipedia.org/wiki/LGBT_History_Month)! 
 
 ## Stay connected while social distancing! 
 
@@ -31,15 +31,11 @@ Watch for flags across Utah via [Project Rainbow](https://www.projectrainbowutah
 
 ## Upcoming LGBTQIA+ Dates
 
-October National LGBT History Month 
+November 8 Intersex Solidarity Day is also known as Intersex Day of Remembrance and marks the birthday of Herculine Barbin, a now-famous French intersex person. 
 
-October 11 National Coming Out Day
+November 20 International Transgender Day of Remembrance memorializes those who were killed due to anti-transgender hatred or prejudice and honors Rita Hester, who was murdered on November 28,1998. Visit GLAAD Transgender Day of Remembrance for more information.
 
-October 20 Spirit Day 
-
-October 26 Intersex Awareness Day
-
-October 22-28 Asexual Awareness Week
+December 1 is World AIDS Day, an opportunity for people worldwide to unite in the fight against HIV, show their support for people living with HIV, and to commemorate those who have died. World AIDS Day was the first ever global health day, held for the first time in 1988. 
 
 See a full list at [Wright State University Office of LGBTQA Affairs](https://www.wright.edu/diversity-and-inclusion/culture-and-identity-centers/lgbtqa-affairs/international-lgbtqa-dates-to-know)
 
