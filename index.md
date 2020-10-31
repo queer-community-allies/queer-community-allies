@@ -1,19 +1,16 @@
 ---
 title: Welcome
----
-
-## October is National LGBT History Month! 
-
-Read more about the history of October as Pride Month at [Wikipedia LGBTQ History Month](https://en.wikipedia.org/wiki/LGBT_History_Month)! 
+--- 
 
 ## Stay connected while social distancing! 
 
-#SafeHands #CoronaKindness #BacktoSchool2020 #SafeatSchool #COVID19  
+#SafeHands #CoronaKindness #SchoolSafety #COVID19  
 
-- GLBT National Youth Talkline provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 1-800-246-7743 & [https://www.glbtonline.org](https://www.glbtonline.org) 
-- Utah Pride Center Youth online support groups for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for a participant ID and access to a group. [Follow them online](https://utahpridecenter.org/programs/youth-family-programs/) for more details. 
+- [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
+- [Utah Pride Center Youth online support groups](https://utahpridecenter.org/programs/youth-family-programs/) for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for more.  
 - Encircle is doing live group meets! Check out their YouTube channel for videos and follow them online for updates. 
 - TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
+- Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
 
 
 ## 10 Ways to Be an Ally & a Friend (from GLAAD)  
