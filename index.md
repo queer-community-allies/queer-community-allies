@@ -2,14 +2,15 @@
 title: Welcome
 --- 
 
-## Stay connected while social distancing! 
+## Stay connected! 
 
 #SafeHands #CoronaKindness #SchoolSafety #COVID19  
 
+- TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
+- [SafeUT](https://safeut.med.utah.edu)  
 - [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
 - [Utah Pride Center Youth online support groups](https://utahpridecenter.org/programs/youth-family-programs/) for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for more.  
-- Encircle is doing live group meets! Check out their YouTube channel for videos and follow them online for updates. 
-- TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
+- [Encircle](https://encircletogether.org) is doing online group meets!  
 - Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
 
 
