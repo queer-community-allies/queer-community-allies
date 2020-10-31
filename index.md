@@ -19,9 +19,9 @@ title: Welcome
 - Be a listener.
 - Be open-minded.
 - Be willing to talk.
-- Be inclusive; invite LGBT friends to hang out with your friends and family.
-- Don't assume that all your friends and co-workers are straight. Someone close to you could be looking for support in their coming-out process. Not making assumptions will give them the space they need.
-- Anti-LGBT comments and jokes are harmful. Let your friends, family and co-workers know that you find them offensive.
+- Be inclusive.
+- Don't assume that your friends and co-workers are straight. Someone close to you could be looking for support in their coming-out process. 
+- Anti-LGBT comments and jokes are harmful. Vocalize that you find them offensive.
 - Confront your own prejudices and bias, even if it is uncomfortable to do so.
 - Defend your LGBT friends against discrimination.
 - Believe that all people, regardless of gender identity and sexual orientation, should be treated with dignity and respect.
