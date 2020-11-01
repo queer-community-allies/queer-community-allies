@@ -6,6 +6,8 @@ title: Welcome
 
 #SafeHands #CoronaKindness #SchoolSafety #COVID19  
 
+If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). 
+
 - TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
 - [SafeUT](https://safeut.med.utah.edu)  
 - [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
