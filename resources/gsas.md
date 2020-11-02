@@ -13,8 +13,8 @@ title: Resources
 
 *Note: We are unaware of GSAs existing at Lone Peak High School or Cedar Valley High School.* 
 
-*At this time, non-curricular clubs (including GSAs) are not permitted in junior high schools or elementary schools in our area. For more information, visit 
+*At this time, non-curricular clubs (including GSAs) are not permitted in junior high schools or elementary schools in our area. For more information, visit* 
 - le.utah.gov (Utah Code Title 53G, Chapter 7)
 - alpineschools.org/policy/students (Alpine Policy No. 5530 School Clubs)
 - provo.edu/policies-procedures-forms/3000-students (Provo Policy No. 3540 Secondary School Clubs)
-- policy.jordandistrict.org (Jordan Policy No. AA443 Student Clubs)*
+- policy.jordandistrict.org (Jordan Policy No. AA443 Student Clubs)
