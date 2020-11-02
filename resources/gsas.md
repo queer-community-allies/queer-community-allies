@@ -17,7 +17,7 @@ title: Resources
 - Rockwell Charter High School 
 - Skyridge High School (rgull@alpinedistrict.org) 
 - Timpanogos High School (website for more information: [https://sites.google.com/view/timpanogosgsa/home](https://sites.google.com/view/timpanogosgsa/home))
-- Utah County Academy of Sciences (UCAS) (lacy.fife@ucas-edu.net and kim.lamb@ucas-edu.net advisors)
+- Utah County Academy of Sciences (lacy.fife@ucas-edu.net and kim.lamb@ucas-edu.net advisors)
 - Westlake High School (cminer@alpinedistrict.org)
 
 *Note: We are unaware of GSAs existing at Independence High School, Lone Peak High School, or Timpview High School.* 
