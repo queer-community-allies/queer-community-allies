@@ -15,7 +15,7 @@ title: Resources
 - Providence Hall High School 
 - Provo High School 
 - Rockwell Charter High School 
-- Skyridge High School
+- Skyridge High School, rgull@alpinedistrict.org
 - Timpanogos High School, Website for more information: [https://sites.google.com/view/timpanogosgsa/home](https://sites.google.com/view/timpanogosgsa/home)
 - Utah County Academy of Sciences (UCAS)
 - Westlake High School 
