@@ -10,6 +10,7 @@ title: Resources
 - American Fork High School (Advisor: Shelly Hancock) 
 - Timpanogos High School (Advisor: Vanessa White VWhite@alpinedistrict.org) 
 
+*Note: We are unaware of GSAs existing at Lone Peak High or Cedar Valley High. 
 
 *Note: at this time, non-curricular clubs (including GSAs) are not permitted in junior high schools or elementary schools in our area. For more information, visit 
 - le.utah.gov (Utah Code Title 53G, Chapter 7)
