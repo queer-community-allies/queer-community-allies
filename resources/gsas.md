@@ -5,10 +5,10 @@ title: Resources
 
 # Local GSAs 
 
-Providence Hall High School 
-Westlake High School (contact Cathy Miner) 
-American Fork High School (Advisor: Shelly Hancock) 
-Timpanogos High School (Advisor: Vanessa White VWhite@alpinedistrict.org) 
+- Providence Hall High School 
+- Westlake High School (contact Cathy Miner) 
+- American Fork High School (Advisor: Shelly Hancock) 
+- Timpanogos High School (Advisor: Vanessa White VWhite@alpinedistrict.org) 
 
 
 *Note: at this time, non-curricular clubs (including GSAs) are not permitted in junior high schools or elementary schools in our area. For more information, visit 
