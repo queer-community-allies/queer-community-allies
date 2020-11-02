@@ -5,7 +5,7 @@ title: Resources
 
 # Local GSAs 
 
-- Providence Hall High School 
+- Providence Hall High School (has a GSA) 
 - Westlake High School (contact Cathy Miner) 
 - American Fork High School (Advisor: Shelly Hancock) 
 - Timpanogos High School (Advisor: Vanessa White VWhite@alpinedistrict.org) 
