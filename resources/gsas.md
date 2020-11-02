@@ -16,7 +16,7 @@ title: Resources
 - Provo High School 
 - Rockwell Charter High School 
 - Skyridge High School
-- Timpanogos High School 
+- Timpanogos High School, Website for more information: [https://sites.google.com/view/timpanogosgsa/home](https://sites.google.com/view/timpanogosgsa/home)
 - Utah County Academy of Sciences (UCAS)
 - Westlake High School 
 
