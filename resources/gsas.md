@@ -7,6 +7,7 @@ title: Resources
 "Outing" is the act of disclosing an LGBT person's sexual orientation or gender identity without that person's consent. In this case, we value the privacy and safety of all groups and their members. The information provided is what each group has consented for Queer Community Allies to display on their website as of 10 November 2020. Other organizations, groups, or individuals may not recreate or repost this information without first obtaining consent from the GSAs listed. 
 
 - American Fork High School (Shelly Hancock shancock@alpinedistrict.org) 
+- Mountain View High School (Advisor: Josephine Clark jchantawansri@alpinedistrct.org)
 - Pleasant Grove High School (Mr. Scott Healy) 
 - Provo High School (Jessica Theurer) 
 - Skyridge High School (rgull@alpinedistrict.org) 
