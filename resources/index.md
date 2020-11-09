@@ -74,9 +74,8 @@ Our local GSAs
 
 ## 🏳️‍🌈 For Teachers
 
-- Idea: Introduce yourself with your pronouns to your students and coworkers.
-- Idea: Put just one rainbow sticker somewhere in your space, or wear a rainbow pin on your lanyard.
-- There are lots of ways to show allyship! Find something that feels true to you. 
+- Introduce yourself with your pronouns to your students and coworkers.
+- Idea: Put just one rainbow sticker somewhere in your space, or wear a rainbow pin on your lanyard. There are lots of ways to show allyship! Find something that feels true to you. 
 - Did you know? [News: Utah Repeals 'No Promo Homo' Law](https://www.hrw.org/news/2017/03/21/utah-repeals-no-promo-homo-law) 
 - [GLSEN Educator Resources](https://www.glsen.org/resources/educator-resources)
 - [Harvard Graduate School of Education Making Caring Common Project: Supporting LGBTQIA Youth Resource List](https://mcc.gse.harvard.edu/resources-for-educators/supporting-lgbtqia-youth-resource-list)  
@@ -84,6 +83,7 @@ Our local GSAs
 - [SafeSpaceUT](https://safespaceut.com)
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
 - (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
+- [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/) from Youth Assisting Youth for virtual mentoring relationships 
 
 
 ## 🏳️‍🌈 Booklist - Teens + Kids 
