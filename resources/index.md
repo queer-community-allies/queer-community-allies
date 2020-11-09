@@ -101,8 +101,7 @@ Our local GSAs
 [Here's a list of scholarships we've found for LGBTQ+ teens.](/scholarships) We recommend also checking whether your prospective university/college/school has a LGBTQ resource center; a center can help you identify local resources, support groups, & scholarships. 
 
 
-## 🏳️‍🌈 Booklist - Teens + Kids 
-[Some of our favorite books!](/resources/booklist.html)
+## 🏳️‍🌈 [Booklist - Teens + Kids](/resources/booklist.html)
 
 
 ## 🏳️‍🌈 [Additional Teen & Family Support, Organizations & Services (SLC/Northern UT)](/utsupportservices)
