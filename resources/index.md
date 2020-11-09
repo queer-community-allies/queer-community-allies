@@ -107,7 +107,7 @@ Our local GSAs
 ## 🏳️‍🌈 [Additional Teen & Family Support, Organizations & Services (SLC/Northern UT)](/utsupportservices)
 
 
-## 🏳️‍🌈 Additional Online Resources, Spaces, Podcasts, & Information 
+## 🏳️‍🌈 More Resources, Virtual Spaces, Podcasts, & Information 
 
 - [Advocates for Youth: Are you an askable parent?](https://advocatesforyouth.org/resources/health-information/are-you-an-askable-parent/)
 - [Advocates for Youth: Fact Sheet Puberty Blocker Pills](https://advocatesforyouth.org/resources/fact-sheets/explainer-puberty-blocker-bills/)
