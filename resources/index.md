@@ -83,7 +83,8 @@ Our local GSAs
 - [SafeSpaceUT](https://safespaceut.com)
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
 - (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
-- [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/) from Youth Assisting Youth for virtual mentoring relationships 
+- [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/) from Youth Assisting Youth for virtual mentoring relationships. 
+- Gender Spectrum hosted a webinar on "Creating Online Spaces for LGBTQ+ Groups" to share some best practices and advice they have learned over years of hosting our Online Groups for trans, non-binary & gender expansive youth, families and professionals. [More info here](https://www.genderspectrum.org/articles/blog-covid-resources). 
 
 
 ## 🏳️‍🌈 Booklist - Teens + Kids 
