@@ -13,7 +13,7 @@ title: Resources
 - Skyridge High School GSA (rgull@alpinedistrict.org) 
 - Timpanogos High School GSA (website for more information: [https://sites.google.com/view/timpanogosgsa/home](https://sites.google.com/view/timpanogosgsa/home))
 - Utah County Academy of Sciences PRISM (lacy.fife@ucas-edu.net and kim.lamb@ucas-edu.net advisors)
-- Westlake High School GSA (cminer@alpinedistrict.org)
+- Westlake High School GSA (Cathy Miner cminer@alpinedistrict.org)
 
 
 *At this time, non-curricular clubs (including GSAs) are not permitted in junior high schools or elementary schools in our area. For more information, visit:* 
