@@ -4,6 +4,20 @@ menu-title: Resources
 ---
 
 
+## COVID-19 Virtual Connections #SafeHands #CoronaKindness #SchoolSafety #COVID19  
+
+If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). 
+
+- TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
+- [SafeUT](https://safeut.med.utah.edu)  
+- [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)! Teens (ages 13-19), Black Trans and Non-Binary Teen Group, Pre-Teens (ages 10-12), National Parent Support Group, and [so many more](https://www.genderspectrum.org/articles/blog-covid-resources). 
+- [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
+- [Utah Pride Center Youth online support groups](https://utahpridecenter.org/programs/youth-family-programs/) for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for more.  
+- [Encircle](https://encircletogether.org) is doing online group meets!  
+- Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
+- Youth Assisting Youth: [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/)! 
+
+
 ## 🏳️‍🌈 Online Glossaries of Queer Terms
 
 - [GLAAD ~ An Ally's Guide to Terminology](http://www.glaad.org/sites/default/files/allys-guide-to-terminology_1.pdf?fbclid=IwAR3yd_5a80oD5cJOiq8u177Kqf8gCYuDEiGZs7-L74RjLsUlLDlUv0CAUT4)
@@ -15,7 +29,7 @@ menu-title: Resources
 - [University of Wisconsin Milwaukee ~ Gender Pronouns](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
 
 
-## 🏳️‍🌈 Nearby Health Providers & Therapists for Teens
+## 🏳️‍🌈 Health Providers & Therapists for Teens
 
 - [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
@@ -23,12 +37,12 @@ menu-title: Resources
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
 
 
-## 🏳️‍🌈 Nearby Workplaces for Teens
+## 🏳️‍🌈 Workplaces for Teens
 
 List under construction... Do you know of some teen queer-affirming workplaces in north Utah County or south Salt Lake County? 
 
 
-## 🏳️‍🌈 Nearby Teams, Interest Groups & Hangout Spots for Teens 
+## 🏳️‍🌈 Teams, Interest Groups & Hangout Spots  
 
 List under construction... Do you know of some teen queer-affirming groups or spots in north Utah County or south Salt Lake County? 
 
@@ -36,12 +50,12 @@ List under construction... Do you know of some teen queer-affirming groups or sp
 - [Third Space Studios (Provo)](https://www.facebook.com/thirdspaceprovo/) 
 
 
-## 🏳️‍🌈 Nearby/Virtual Teen Volunteer Opportunities 
+## 🏳️‍🌈 Teen Volunteer Opportunities 
 
 List under construction... Do you know of some teen service opportunities in north Utah County or south Salt Lake County? 
 
-- [GLSEN National Student Council](https://www.glsen.org/nsc) 
-- [Project Rainbow](https://www.projectrainbowutah.org/volunteer)
+- [GLSEN National Student Council](https://www.glsen.org/nsc) - virtual 
+- [Project Rainbow](https://www.projectrainbowutah.org/volunteer) - in person 
 
 
 ## 🏳️‍🌈 Help for School Clubs
@@ -58,11 +72,7 @@ Our local GSAs
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
 
-## 🏳️‍🌈 Scholarships
-[Here's a list of scholarships we've found for LGBTQ+ teens.](/scholarships) We recommend also checking whether your prospective university/college/school has a LGBTQ resource center; a center can help you identify local resources, support groups, & scholarships. 
-
-
-## 🏳️‍🌈 Nearby Teen & Family Support  
+## 🏳️‍🌈 Teen & Family Support (UT/southSL counties)
 
 - [Encircle (Provo)](www.EncircleTogether.org)  
 - [Dragon Dads](https://www.facebook.com/DragonDads/)  
@@ -87,24 +97,15 @@ Our local GSAs
 - Gender Spectrum hosted a webinar on "Creating Online Spaces for LGBTQ+ Groups" to share some best practices and advice they have learned over years of hosting our Online Groups for trans, non-binary & gender expansive youth, families and professionals. [More info here](https://www.genderspectrum.org/articles/blog-covid-resources). 
 
 
+## 🏳️‍🌈 Scholarships
+[Here's a list of scholarships we've found for LGBTQ+ teens.](/scholarships) We recommend also checking whether your prospective university/college/school has a LGBTQ resource center; a center can help you identify local resources, support groups, & scholarships. 
+
+
 ## 🏳️‍🌈 Booklist - Teens + Kids 
 [Some of our favorite books!](/resources/booklist.html)
 
 
-## 🏳️‍🌈 Local Affirming Businesses
-
-- Backyard Bookkeeper
-- Beans & Brews 
-- Coffee Creations 
-- Cravings Alisha's Cupcakes 
-- Mojo Printing 
-- Shirtbatter
-- YogaVega
-
-
-## 🏳️‍🌈 Additional Teen & Family Support, Organizations & Services 
-
-[LGBTQ+ teen and family support groups/organizations & services -- Salt Lake City/Northern Utah](/utsupportservices)
+## 🏳️‍🌈 [Additional Teen & Family Support, Organizations & Services (SLC/Northern UT)](/utsupportservices)
 
 
 ## 🏳️‍🌈 Additional Online Resources, Spaces, Podcasts, & Information 
