@@ -36,10 +36,11 @@ List under construction... Do you know of some teen queer-affirming groups or sp
 - [Third Space Studios (Provo)](https://www.facebook.com/thirdspaceprovo/) 
 
 
-## 🏳️‍🌈 Nearby Teen Volunteer Opportunities 
+## 🏳️‍🌈 Nearby/Virtual Teen Volunteer Opportunities 
 
 List under construction... Do you know of some teen service opportunities in north Utah County or south Salt Lake County? 
 
+- [GLSEN National Student Council](https://www.glsen.org/nsc) 
 - [Project Rainbow](https://www.projectrainbowutah.org/volunteer)
 
 
