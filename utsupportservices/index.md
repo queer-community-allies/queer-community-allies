@@ -3,7 +3,7 @@ title: Utah Support & Services
 
 ---
 
-## 🏳️‍🌈 Additional: Salt Lake City/Northern Utah Teen & Family Support 
+## 🏳️‍🌈 Salt Lake City/Northern Utah Teen & Family Support 
 
 - [Affirmation: LGBTQ Mormons, Families & Friends](https://affirmation.org)
 - [Encircle](https://encircletogether.org)
@@ -14,7 +14,7 @@ title: Utah Support & Services
 - [Utah Pride Center](https://utahpridecenter.org)
 - [Youth Futures](https://www.youthfuturesutah.org) 
 
-## 🏳️‍🌈 Additional: Salt Lake City/Northern Utah Services & Organizations  
+## 🏳️‍🌈 Salt Lake City/Northern Utah Services & Organizations  
 
 - [Equality Utah](www.equalityutah.org)
 - [GLSEN Northern Utah](https://www.glsen.org/chapters/northern-utah-chapter) 
