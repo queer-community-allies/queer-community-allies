@@ -15,6 +15,8 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - [Encircle](https://encircletogether.org) is doing online group meets!  
 - Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
 
+We love this list from Youth Assisting Youth with [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/)! 
+
 
 ## 10 Ways to Be an Ally & a Friend (from GLAAD)  
 
