@@ -10,6 +10,7 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 
 - TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
 - [SafeUT](https://safeut.med.utah.edu)  
+- [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)! Teens (ages 13-19), Black Trans and Non-Binary Teen Group, Pre-Teens (ages 10-12), National Parent Support Group, and [so many more](https://www.genderspectrum.org/articles/blog-covid-resources). 
 - [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
 - [Utah Pride Center Youth online support groups](https://utahpridecenter.org/programs/youth-family-programs/) for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for more.  
 - [Encircle](https://encircletogether.org) is doing online group meets!  
@@ -48,9 +49,11 @@ See a full list at [Wright State University Office of LGBTQA Affairs](https://ww
 - Backyard Bookkeeper
 - Beans & Brews 
 - Coffee Creations 
+- Cravings Alisha's Cupcakes
 - Mojo Printing 
 - Shirtbatter
 - YogaVega
+
 
 ![we'll be your village](files/rainbow-banner.jpeg)
 
