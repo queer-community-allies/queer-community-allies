@@ -59,7 +59,7 @@ List under construction... Do you know of some teen service opportunities in nor
 
 
 ## 🏳️‍🌈 Help for School Clubs
-[Our local GSAs](/gsas.html)
+[Our local GSAs](/gsas.htm)
 - [GSA Network ~ What is a GSA club?](https://gsanetwork.org/what-is-a-gsa/) 
 - [ACLU ~ How to Start a Gay-Straight Alliance (GSA)](https://www.aclu.org/other/how-start-gay-straight-alliance-gsa) 
 - [Teaching Tolerance ~ 10 Tips for Starting a GSA](https://www.tolerance.org/magazine/10-tips-for-starting-a-gsa)
