@@ -96,7 +96,7 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 - [SafeSpaceUT](https://safespaceut.com)
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
 
-- (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
+(For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
 
 
 
