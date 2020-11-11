@@ -88,7 +88,7 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 
 - Did you know? [News: Utah Repeals 'No Promo Homo' Law](https://www.hrw.org/news/2017/03/21/utah-repeals-no-promo-homo-law) 
 - [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/) from Youth Assisting Youth for virtual mentoring relationships. 
-- Gender Spectrum hosted a webinar on "Creating Online Spaces for LGBTQ+ Groups" to share some best practices and advice they have learned over years of hosting our Online Groups for trans, non-binary & gender expansive youth, families and professionals. [More info here](https://www.genderspectrum.org/articles/blog-covid-resources). 
+- Gender Spectrum hosted a webinar, "Creating Online Spaces for LGBTQ+ Groups" to advice they have learned from hosting groups online for youth, families and professionals. [More info here](https://www.genderspectrum.org/articles/blog-covid-resources). 
 - [GLSEN Educator Resources](https://www.glsen.org/resources/educator-resources)
 - [HRC's Project Thrive](https://www.thehrcfoundation.org/professional-resources/project-thrive) - build the skills and capacities of all youth-serving professionals to better meet the needs of LGBTQ young people.
 - [LGBTQ History.Org Teaching Instructional Resources](http://www.lgbtqhistory.org/lgbtq-educational-resources/) 
