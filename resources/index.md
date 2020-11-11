@@ -84,17 +84,20 @@ List under construction... Do you know of some teen service opportunities in nor
 
 ## 🏳️‍🌈 For Teachers
 
-- Introduce yourself with your pronouns to your students and coworkers.
-- Idea: Put just one rainbow sticker somewhere in your space, or wear a rainbow pin on your lanyard. There are lots of ways to show allyship! Find something that feels true to you. 
+Introduce yourself with your pronouns to your students and coworkers! Idea: Put just one rainbow sticker somewhere in your space, or wear a rainbow pin on your lanyard. There are lots of ways to show allyship! Find something that feels true to you. 
+
 - Did you know? [News: Utah Repeals 'No Promo Homo' Law](https://www.hrw.org/news/2017/03/21/utah-repeals-no-promo-homo-law) 
-- [GLSEN Educator Resources](https://www.glsen.org/resources/educator-resources)
-- [Harvard Graduate School of Education Making Caring Common Project: Supporting LGBTQIA Youth Resource List](https://mcc.gse.harvard.edu/resources-for-educators/supporting-lgbtqia-youth-resource-list)  
-- [LGBTQ History.Org Teaching Instructional Resources](http://www.lgbtqhistory.org/lgbtq-educational-resources/) 
-- [SafeSpaceUT](https://safespaceut.com)
-- [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
-- (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
 - [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/) from Youth Assisting Youth for virtual mentoring relationships. 
 - Gender Spectrum hosted a webinar on "Creating Online Spaces for LGBTQ+ Groups" to share some best practices and advice they have learned over years of hosting our Online Groups for trans, non-binary & gender expansive youth, families and professionals. [More info here](https://www.genderspectrum.org/articles/blog-covid-resources). 
+- [GLSEN Educator Resources](https://www.glsen.org/resources/educator-resources)
+- [HRC's Project Thrive](https://www.thehrcfoundation.org/professional-resources/project-thrive) - build the skills and capacities of all youth-serving professionals to better meet the needs of LGBTQ young people.
+- [LGBTQ History.Org Teaching Instructional Resources](http://www.lgbtqhistory.org/lgbtq-educational-resources/) 
+- [Making Caring Common Project: Supporting LGBTQIA Youth Resource List](https://mcc.gse.harvard.edu/resources-for-educators/supporting-lgbtqia-youth-resource-list) - from Harvard Graduate School of Education 
+- [SafeSpaceUT](https://safespaceut.com)
+- [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
+
+- (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
+
 
 
 ## 🏳️‍🌈 Scholarships
