@@ -26,7 +26,7 @@ There are multiple ways to donate to Queer Community Allies! Check out one of th
 - [Donate via Venmo](/donate/venmo)
 
 
-![2020 Holiday Drawing](/donation/holiday-drawing2020.jpg)
+![2020 Holiday Drawing](/files/holidaydrawingsmall.jpg)
 
 
 We also have a storefront! [QueerCommunityAllies at Zazzle.com](https://www.zazzle.com/store/queercommunityallies) 
