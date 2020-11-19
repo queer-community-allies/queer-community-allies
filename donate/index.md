@@ -3,6 +3,22 @@ title: Donate
 menu-title: Donate
 --- 
 
+
+November 20 to December 30, 2020
+2nd Annual HOLIDAY DONATION DRAWING! 
+
+Every $10 you donate to Queer Community Allies 
+is one entry in our holiday drawing!       
+(ie $100=10 entries!)
+
+The prize: gift card bundle for local businesses 
+ Drawing: Thursday December 31 
+
+All donations will help GSAs for the rest of the school year, support ongoing projects, & fund summer 2021 community events! 
+
+*Queer Community Allies board members and volunteers are ineligible for prize(s). 
+Find more information at our website queercommunityallies.org 
+
 There are multiple ways to donate to Queer Community Allies! Check out one of the links below. Our EIN is `84-2519026`
 
 <a target="_blank" href="https://donorbox.org/queer-community-allies-donations"><img src="https://d1iczxrky3cnb2.cloudfront.net/button-medium-blue.png" /></a>
@@ -10,7 +26,7 @@ There are multiple ways to donate to Queer Community Allies! Check out one of th
 - [Donate via Venmo](/donate/venmo)
 
 
-![2020 Holiday Drawing](donation/holiday-drawing2020.jpg)
+![2020 Holiday Drawing](/donation/holiday-drawing2020.jpg)
 
 
 We also have a storefront! [QueerCommunityAllies at Zazzle.com](https://www.zazzle.com/store/queercommunityallies) 
