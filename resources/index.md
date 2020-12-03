@@ -35,8 +35,8 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
 - [Healing Steps Counseling (Lehi)](http://www.healingstepsutah.com/)
 - [LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html), Utah-wide directory searchable by location, services, & insurance 
-- [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health)(Salt Lake City) 
-- [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)(Salt Lake City)
+- [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health) (Salt Lake City) 
+- [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health) (Salt Lake City)
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
 
 
