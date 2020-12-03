@@ -34,6 +34,9 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
 - [Healing Steps Counseling (Lehi)](http://www.healingstepsutah.com/)
+- [LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html), Utah-wide directory searchable by location, services, & insurance 
+- [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health)(Salt Lake City) 
+- [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health)(Salt Lake City)
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
 
 
@@ -72,7 +75,7 @@ List under construction... Do you know of some teen service opportunities in nor
 - [GSA Network ~ How to get more members & allies](https://gsanetwork.org/resources/how-to-get-more-members-allies/)
 - [GLSEN ~ Know Your Rights](https://www.glsen.org/knowyourrights)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
-
+Looking for additional help? [GLSEN](https://www.glsen.org) has a [northern Utah chapter](https://www.glsen.org/chapters/northern-utah-chapter)!  
 
 ## 🏳️‍🌈 Teen & Family Support (UT/southSL counties)
 
