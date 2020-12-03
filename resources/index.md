@@ -113,7 +113,7 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 ## 🏳️‍🌈 [Booklist - Teens + Kids](/resources/booklist.html)
 
 
-## 🏳️‍🌈 [Additional Teen & Family Support, Organizations & Services (SLC/Northern UT)](/utsupportservices)
+## 🏳️‍🌈 [Additional Utah Services & Organizations ](/utsupportservices)
 
 
 ## 🏳️‍🌈 Virtual Spaces, Podcasts, & Information 
