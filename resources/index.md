@@ -57,13 +57,12 @@ List under construction... Do you know of some teen queer-affirming groups or sp
 
 ## 🏳️‍🌈 Teen Volunteer Opportunities 
 
-List under construction... Do you know of some teen service opportunities in north Utah County or south Salt Lake County? 
-
 - [GLSEN National Student Council](https://www.glsen.org/nsc) - virtual 
 - [Project Rainbow](https://www.projectrainbowutah.org/volunteer) - in person 
 
 
 ## 🏳️‍🌈 Help for School Clubs
+
 [Our local GSAs](/resources/gsas.html)
 - [GSA Network ~ What is a GSA club?](https://gsanetwork.org/what-is-a-gsa/) 
 - [ACLU ~ How to Start a Gay-Straight Alliance (GSA)](https://www.aclu.org/other/how-start-gay-straight-alliance-gsa) 
