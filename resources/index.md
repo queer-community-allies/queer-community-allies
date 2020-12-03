@@ -20,13 +20,13 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 
 ## 🏳️‍🌈 Online Glossaries of Queer Terms
 
-- [GLAAD ~ An Ally's Guide to Terminology](http://www.glaad.org/sites/default/files/allys-guide-to-terminology_1.pdf?fbclid=IwAR3yd_5a80oD5cJOiq8u177Kqf8gCYuDEiGZs7-L74RjLsUlLDlUv0CAUT4)
-- [Human Rights Campaign ~ Glossary of Terms](https://www.hrc.org/resources/glossary-of-terms?fbclid=IwAR2jzC52LqaE_-fgEEMo8hHqk1uTAbcisEvoUTWThirI5vrTUnADhy9ROaQ) 
+- [An Ally's Guide to Terminology (GLAAD)](http://www.glaad.org/sites/default/files/allys-guide-to-terminology_1.pdf?fbclid=IwAR3yd_5a80oD5cJOiq8u177Kqf8gCYuDEiGZs7-L74RjLsUlLDlUv0CAUT4)
+- [FAQ & Glossary (Trevor Support Center)](https://www.thetrevorproject.org/resources/trevor-support-center/) 
+- [Gender Pronouns (University of Wisconsin Milwaukee)](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
+- [Glossary of Terms (Human Rights Campaign)](https://www.hrc.org/resources/glossary-of-terms?fbclid=IwAR2jzC52LqaE_-fgEEMo8hHqk1uTAbcisEvoUTWThirI5vrTUnADhy9ROaQ) 
+- [LGBTQIA Resource Center Glossary (UC Davis)](https://lgbtqia.ucdavis.edu/educated/glossary?fbclid=IwAR2oeHVRlGOWoJ_CiwzkxRTjaeR1GZJcZEmq_PgvSb9EAywPr4-0W-CDD-0)
 - [MyProunouns.org](https://www.mypronouns.org)
-- [PFLAG ~ National Glossary of Terms](https://pflag.org/glossary?fbclid=IwAR35pBB0uTPRBIRJiqZN3XIaqHkvBITuZp8_SeCIubZTYzPqGUdxIRL2w3U)
-- [Trevor Support Center ~ FAQ & Glossary](https://www.thetrevorproject.org/resources/trevor-support-center/) 
-- [UC Davis ~ LGBTQIA Resource Center Glossary](https://lgbtqia.ucdavis.edu/educated/glossary?fbclid=IwAR2oeHVRlGOWoJ_CiwzkxRTjaeR1GZJcZEmq_PgvSb9EAywPr4-0W-CDD-0)
-- [University of Wisconsin Milwaukee ~ Gender Pronouns](https://uwm.edu/lgbtrc/support/gender-pronouns/?fbclid=IwAR2nNF7j4UniTuBetS7mXNsCOp8Rrfub4Ccdsv9aQ_3bxZf9tVKMXtbklJI)
+- [National Glossary of Terms (PFLAG)](https://pflag.org/glossary?fbclid=IwAR35pBB0uTPRBIRJiqZN3XIaqHkvBITuZp8_SeCIubZTYzPqGUdxIRL2w3U)
 
 
 ## 🏳️‍🌈 Health Providers & Therapists for Teens
@@ -83,6 +83,7 @@ Looking for additional help? GLSEN has a [northern Utah chapter](https://www.gls
 - [Mama Dragons](https://mamadragons.org) 
 - [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
 - [Queer Meals (Provo)](http://queermeals.com)  
+
 [More support](/utsupportservices) in Utah County for college students, and for teens and families across Utah. 
 
 
