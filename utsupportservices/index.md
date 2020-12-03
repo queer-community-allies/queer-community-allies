@@ -3,16 +3,16 @@ title: Utah Support & Services
 
 ---
 
-## 🏳️‍🌈 Salt Lake City/Northern Utah Teen & Family Support 
+## 🏳️‍🌈 More Teen & Family Support 
 
 - [Affirmation: LGBTQ Mormons, Families & Friends](https://affirmation.org)
-- [Encircle](https://encircletogether.org)
-- [The OUT Foundation](https://www.theout.foundation) 
-- [Peculiar](https://www.thepeculiar.org) 
+- [Encircle](https://encircletogether.org) (SLC & St. George) 
+- [The OUT Foundation](https://www.theout.foundation), empowering LGBTQ+ BYU alumni & current students 
+- [Peculiar](https://www.thepeculiar.org), inspiring parents to unconditionally love their LGBTQ+ children 
 - Spectrum: QSA at UVU
 - USGA at BYU
 - [Utah Pride Center](https://utahpridecenter.org)
-- [Youth Futures](https://www.youthfuturesutah.org) 
+- [Youth Futures](https://www.youthfuturesutah.org) (Ogden & St. George), home for vulnerable and homeless youth 
 
 ## 🏳️‍🌈 Salt Lake City/Northern Utah Services & Organizations  
 
