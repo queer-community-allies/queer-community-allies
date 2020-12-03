@@ -40,6 +40,7 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 ## 🏳️‍🌈 Workplaces for Teens
 
 List under construction... Do you know of some teen queer-affirming workplaces in north Utah County or south Salt Lake County? 
+- Coffee Creations (Saratoga Springs), 18+ 
 
 
 ## 🏳️‍🌈 Teams, Interest Groups & Hangout Spots  
@@ -47,6 +48,7 @@ List under construction... Do you know of some teen queer-affirming workplaces i
 List under construction... Do you know of some teen queer-affirming groups or spots in north Utah County or south Salt Lake County? 
 
 - [Rainbow Mutual](http://www.rainbowmutual.org)   
+- MOD Pizza (Saratoga Springs) 
 - [Third Space Studios (Provo)](https://www.facebook.com/thirdspaceprovo/) 
 
 
@@ -110,7 +112,7 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 ## 🏳️‍🌈 [Additional Teen & Family Support, Organizations & Services (SLC/Northern UT)](/utsupportservices)
 
 
-## 🏳️‍🌈 More Resources, Virtual Spaces, Podcasts, & Information 
+## 🏳️‍🌈 Virtual Spaces, Podcasts, & Information 
 
 - [Advocates for Youth: Are you an askable parent?](https://advocatesforyouth.org/resources/health-information/are-you-an-askable-parent/)
 - [Advocates for Youth: Fact Sheet Puberty Blocker Pills](https://advocatesforyouth.org/resources/fact-sheets/explainer-puberty-blocker-bills/)
