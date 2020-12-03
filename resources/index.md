@@ -69,12 +69,11 @@ List under construction... Do you know of some teen queer-affirming groups or sp
 - [Teaching Tolerance ~ 10 Tips for Starting a GSA](https://www.tolerance.org/magazine/10-tips-for-starting-a-gsa)
 - [GLSEN ~ How to Find a Club Advisor](https://www.glsen.org/gsa/findanadvisor)
 - [GLSEN ~ Educators! Support Your GSA](https://www.glsen.org/article/educators-support-your-gsa)
-- [GSA Network ~ Tips for keeping your GSA and its members safe](https://gsanetwork.org/resources/gsa-safety-resource/) 
-- [GLSEN ~ Make Your GSA Transgender & Gender Nonconforming Inclusive](https://www.glsen.org/GSA/making-your-club-inclusive-transgender-and-gnc-students)
 - [GSA Network ~ How to get more members & allies](https://gsanetwork.org/resources/how-to-get-more-members-allies/)
 - [GLSEN ~ Know Your Rights](https://www.glsen.org/knowyourrights)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
-Looking for additional help? [GLSEN](https://www.glsen.org) has a [northern Utah chapter](https://www.glsen.org/chapters/northern-utah-chapter)!  
+
+Looking for additional help? GLSEN has a [northern Utah chapter](https://www.glsen.org/chapters/northern-utah-chapter)!  
 
 ## 🏳️‍🌈 Teen & Family Support (UT/southSL counties)
 
