@@ -45,14 +45,17 @@ See a full list at [Wright State University Office of LGBTQA Affairs](https://ww
 
 ## A big thank you to local businesses that supported Queer Community Allies & GSAs in 2019 & 2020! 
 
-- American Name Services
-- Backyard Bookkeeper
-- Beans & Brews 
-- Coffee Creations 
-- Cravings Alisha's Cupcakes
-- Mojo Printing 
-- Shirtbatter
-- YogaVega
+- American Name Services (2019)
+- Backyard Bookkeeper (2019)
+- Beans & Brews (2019)
+- Coffee Creations (2019)
+- Cravings Alisha's Cupcakes (2020)
+- Grinders Coffee House (2020) 
+- MOD Pizza Saratoga Springs (2020)
+- Mojo Printing (2020)
+- Revolution Print & Packaging (2020) 
+- Shirtbatter (2019)
+- YogaVega (2019) 
 
 
 ![we'll be your village](files/rainbow-banner.jpeg)
