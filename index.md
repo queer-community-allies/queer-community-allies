@@ -43,7 +43,7 @@ December 1 is World AIDS Day, an opportunity for people worldwide to unite in th
 See a full list at [Wright State University Office of LGBTQA Affairs](https://www.wright.edu/diversity-and-inclusion/culture-and-identity-centers/lgbtqa-affairs/international-lgbtqa-dates-to-know)
 
 
-## A big thank you to local businesses that supported Queer Community Allies & GSAs in 2019 & 2020! 
+## A big thank you to local businesses that have supported Queer Community Allies & GSAs! 
 
 - American Name Services (2019)
 - Backyard Bookkeeper (2019)
@@ -51,6 +51,7 @@ See a full list at [Wright State University Office of LGBTQA Affairs](https://ww
 - Coffee Creations (2019)
 - Cravings Alisha's Cupcakes (2020)
 - Grinders Coffee House (2020) 
+- J Dawgs (2020)
 - MOD Pizza Saratoga Springs (2020)
 - Mojo Printing (2020)
 - Revolution Print & Packaging (2020) 
