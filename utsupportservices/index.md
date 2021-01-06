@@ -30,9 +30,9 @@ Trans Services
 - [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
 
 MORE! 
-- [Rainbow Law, LGBT + Allied Lawyers of Utah](http://www.lgbtutahlawyers.com/directory) 
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) 
 - [QUAC - Queer Utah Aquatic Club](https://www.quacquac.org) 
+- [Rainbow Law, LGBT + Allied Lawyers of Utah](http://www.lgbtutahlawyers.com/directory) 
 - [Stonewall Sports SLC](http://www.stonewallsportsslc.org) 
 - [Utah Aids Foundation](http://www.utahaids.org)
 - [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
