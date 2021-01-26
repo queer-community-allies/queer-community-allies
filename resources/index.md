@@ -93,7 +93,6 @@ Looking for additional help? GLSEN has a [northern Utah chapter](https://www.gls
 - [AMAZE](https://amaze.org) (or their [YouTube channel](https://www.youtube.com/c/amazeorg)) 
 - [Healthy LGBTQ Relationships, Stop the Hurt](https://stopthehurt.org/lgbtq-relationships/)
 - [Healthy Relationships, the Trevor Project](https://www.thetrevorproject.org/trvr_support_center/healthy-relationships/) 
-- [Love is Respect](https://www.loveisrespect.org/pdf/Healthy_LGBTQ_Relationships.pdf) 
 - [Romantic Relationships in Transgender
 Adolescents: A Qualitative Study, January 2021](https://pediatrics.aappublications.org/content/pediatrics/early/2021/01/15/peds.2020-007906.full.pdf), published in the Official Journal of the American Academy of Pediatrics 
 - Articles about sex, STDs, puberty, doctors visits, relationships, bullying, privacy, LGBTQ, and more at [plannedparenthood.org/learn/teens](https://www.plannedparenthood.org/learn/teens)
