@@ -75,6 +75,7 @@ List under construction... Do you know of some teen queer-affirming groups or sp
 
 Looking for additional help? GLSEN has a [northern Utah chapter](https://www.glsen.org/chapters/northern-utah-chapter)!  
 
+
 ## 🏳️‍🌈 Teen & Family Support (UT/southSL counties)
 
 - [Encircle (Provo)](www.EncircleTogether.org)  
@@ -86,6 +87,22 @@ Looking for additional help? GLSEN has a [northern Utah chapter](https://www.gls
 
 [More support](/utsupportservices) in Utah County for college students, and for teens and families across Utah. 
 
+
+## 🏳️‍🌈 Dating 
+
+- [AMAZE](https://amaze.org) (or their [YouTube channel](https://www.youtube.com/c/amazeorg)) 
+- [Healthy LGBTQ Relationships, Stop the Hurt](https://stopthehurt.org/lgbtq-relationships/)
+- [Healthy Relationships, the Trevor Project](https://www.thetrevorproject.org/trvr_support_center/healthy-relationships/) 
+- [Love is Respect](https://www.loveisrespect.org/pdf/Healthy_LGBTQ_Relationships.pdf) 
+- [Romantic Relationships in Transgender
+Adolescents: A Qualitative Study, January 2021](https://pediatrics.aappublications.org/content/pediatrics/early/2021/01/15/peds.2020-007906.full.pdf), published in the Official Journal of the American Academy of Pediatrics 
+- Articles about sex, STDs, puberty, doctors visits, relationships, bullying, privacy, LGBTQ, and more at [plannedparenthood.org/learn/teens](https://www.plannedparenthood.org/learn/teens)
+
+For Parents: 
+- [5 Tips For Talking To Your LGBTQ Child About Sexual Health](https://www.mykidisgay.com/blog/5-tips-for-talking-to-your-lgbtq-child-about-sexual-health) 
+- [How Can I Talk to My Child About Consent?](https://www.mykidisgay.com/blog/how-can-i-talk-to-my-child-about-consent)
+- [LGBTQ Sex Myths, Preconceptions, and Safety Tips](https://www.mykidisgay.com/blog/lgbtq-sex-myths-preconceptions-and-safety-tips) 
+- [Talking to Your LGBTQ Teens About Sex](https://blog.lighthouse.lgbt/the-kids-are-alright-talking-to-your-lgbtq-teens-about-sex/) from Lighthouse, a group of NYC-based healthcare providers specializing in LGBTQ+ health issues
 
 ## 🏳️‍🌈 For Teachers
 
@@ -102,7 +119,6 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
 
 (For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
-
 
 
 ## 🏳️‍🌈 Scholarships
