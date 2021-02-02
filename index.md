@@ -48,7 +48,7 @@ We love this list from Youth Assisting Youth with [10 virtual activity ideas](ht
 - YogaVega (2019) 
 
 
-![this month's calendar](files/Annual dates calendar, Feb.jpg)
+![this month's calendar](/files/calendarFeb.jpg)
 ![we'll be your village](files/rainbow-banner.jpeg)
 
 Logo design by Larissa Norman
