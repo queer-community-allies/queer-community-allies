@@ -3,7 +3,6 @@ title: Resources
 menu-title: Resources
 ---
 
-Scroll for 
 - Virtual connections during the COVID-19 pandemic
 - Online glossaries of Queer †erms
 - Health providers and therapists 
