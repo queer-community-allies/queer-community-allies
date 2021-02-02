@@ -3,10 +3,23 @@ title: Resources
 menu-title: Resources
 ---
 
+Scroll for 
+- Virtual connections during the COVID-19 pandemic
+- Online glossaries of Queer †erms
+- Health providers and therapists 
+- Workplaces for teens
+- Teams, interest groups, and hangout spots
+- Teen volunteer opportunities
+- Help for school clubs
+- Teen & family support (local)
+- Dating 
+- For teachers
+- Scholarships 
+- Booklist (teens & kids)
+- Additional Utah services & organizations (further than local)
+- Virtual spaces, podcasts, & information
 
 ## Virtual Connections during the COVID-19 pandemic
-
-If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). #SafeHands #CoronaKindness #SchoolSafety #COVID19  
 
 - TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
 - [SafeUT](https://safeut.med.utah.edu)  
@@ -16,7 +29,7 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - [Encircle](https://encircletogether.org) is doing online group meets!  
 - Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
 - Youth Assisting Youth: [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/)! 
-
+If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). #SafeHands #CoronaKindness #SchoolSafety #COVID19  
 
 ## 🏳️‍🌈 Online Glossaries of Queer Terms
 
@@ -42,14 +55,13 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 
 ## 🏳️‍🌈 Workplaces for Teens
 
-List under construction... Do you know of some teen queer-affirming workplaces in north Utah County or south Salt Lake County? 
+List under construction...  
 - Coffee Creations (Saratoga Springs), 18+ 
 
 
 ## 🏳️‍🌈 Teams, Interest Groups & Hangout Spots  
 
-List under construction... Do you know of some teen queer-affirming groups or spots in north Utah County or south Salt Lake County? 
-
+List under construction... 
 - [Rainbow Mutual](http://www.rainbowmutual.org)   
 - MOD Pizza (Saratoga Springs) 
 - [Third Space Studios (Provo)](https://www.facebook.com/thirdspaceprovo/) 
