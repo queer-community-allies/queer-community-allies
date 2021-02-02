@@ -5,8 +5,7 @@ title: Welcome
 ## Stay connected! 
 
 #SafeHands #CoronaKindness #SchoolSafety #COVID19  
-
-If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). 
+We love this list from Youth Assisting Youth with [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/)! 
 
 - TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
 - [SafeUT](https://safeut.med.utah.edu)  
@@ -16,8 +15,7 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - [Encircle](https://encircletogether.org) is doing online group meets!  
 - Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
 
-We love this list from Youth Assisting Youth with [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/)! 
-
+If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). 
 
 ## 10 Ways to Be an Ally & a Friend (from GLAAD)  
 
