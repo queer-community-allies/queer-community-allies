@@ -32,17 +32,6 @@ We love this list from Youth Assisting Youth with [10 virtual activity ideas](ht
 - Believe that all people, regardless of gender identity and sexual orientation, should be treated with dignity and respect.
 
 
-## Upcoming LGBTQIA+ Dates
-
-November 8 Intersex Solidarity Day is also known as Intersex Day of Remembrance and marks the birthday of Herculine Barbin, a now-famous French intersex person. 
-
-November 20 International Transgender Day of Remembrance memorializes those who were killed due to anti-transgender hatred or prejudice and honors Rita Hester, who was murdered on November 28,1998. Visit GLAAD Transgender Day of Remembrance for more information.
-
-December 1 is World AIDS Day, an opportunity for people worldwide to unite in the fight against HIV, show their support for people living with HIV, and to commemorate those who have died. World AIDS Day was the first ever global health day, held for the first time in 1988. 
-
-See a full list at [Wright State University Office of LGBTQA Affairs](https://www.wright.edu/diversity-and-inclusion/culture-and-identity-centers/lgbtqa-affairs/international-lgbtqa-dates-to-know)
-
-
 ## A big thank you to local businesses that have supported Queer Community Allies & GSAs! 
 
 - American Name Services (2019)
