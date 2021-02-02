@@ -4,7 +4,7 @@ menu-title: Resources
 ---
 
 - Virtual connections during the COVID-19 pandemic
-- Online glossaries of Queer †erms
+- Online glossaries of Queer terms
 - Health providers and therapists 
 - Workplaces for teens
 - Teams, interest groups, and hangout spots
