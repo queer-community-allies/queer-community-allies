@@ -124,6 +124,7 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 - [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/) from Youth Assisting Youth for virtual mentoring relationships. 
 - Due to COVID, Gender Spectrum hosted a webinar, "Creating Online Spaces for LGBTQ+ Groups." [More info here](https://www.genderspectrum.org/articles/blog-covid-resources). 
 - [GLSEN Educator Resources](https://www.glsen.org/resources/educator-resources)
+- [HRC + National Education Association virtual teaching checklist, Zoom backgrounds, tips & more!](https://www.hrc.org/news/a-new-resource-for-educators-on-supporting-lgbtq-students-during-distance-l)
 - [HRC's Project Thrive](https://www.thehrcfoundation.org/professional-resources/project-thrive) - build the skills and capacities of all youth-serving professionals to better meet the needs of LGBTQ young people.
 - [LGBTQ History.Org Teaching Instructional Resources](http://www.lgbtqhistory.org/lgbtq-educational-resources/) 
 - [Making Caring Common Project: Supporting LGBTQIA Youth Resource List](https://mcc.gse.harvard.edu/resources-for-educators/supporting-lgbtqia-youth-resource-list) - from Harvard Graduate School of Education 
