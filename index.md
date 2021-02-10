@@ -12,6 +12,7 @@ We love this list from Youth Assisting Youth with [10 virtual activity ideas](ht
 - [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)! Teens (ages 13-19), Black Trans and Non-Binary Teen Group, Pre-Teens (ages 10-12), National Parent Support Group, and [so many more](https://www.genderspectrum.org/articles/blog-covid-resources). 
 - [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
 - [Utah Pride Center Youth online support groups](https://utahpridecenter.org/programs/youth-family-programs/) for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for more.  
+- [QChat Space](https://www.lgbtcenters.org/Q-Chat-Space), live, chat-based, professionally facilitated, online support and discussion groups for LGBTQ+ teens 13-19
 - [Encircle](https://encircletogether.org) is doing online group meets!  
 - Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
 
