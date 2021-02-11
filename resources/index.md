@@ -20,16 +20,16 @@ menu-title: Resources
 - Virtual spaces, podcasts, & information
 
 ## Virtual Connections during the COVID-19 pandemic
-
-- TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
-- [SafeUT](https://safeut.med.utah.edu)  
+  
 - [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)! Teens (ages 13-19), Black Trans and Non-Binary Teen Group, Pre-Teens (ages 10-12), National Parent Support Group, and [so many more](https://www.genderspectrum.org/articles/blog-covid-resources). 
 - [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
-- [Utah Pride Center Youth online support groups](https://utahpridecenter.org/programs/youth-family-programs/) for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for more.  
 - [QChat Space](https://www.lgbtcenters.org/Q-Chat-Space), live, chat-based, professionally facilitated, online support and discussion groups for LGBTQ+ teens 13-19
+- [Utah Pride Center Youth online support groups](https://utahpridecenter.org/programs/youth-family-programs/) for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for more.  
 - [Encircle](https://encircletogether.org) is doing online group meets!  
+- TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
+- [SafeUT](https://safeut.med.utah.edu)
 - Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
-- Youth Assisting Youth: [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/)! 
+
 If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). #SafeHands #CoronaKindness #SchoolSafety #COVID19  
 
 ## 🏳️‍🌈 Online Glossaries of Queer Terms
@@ -52,6 +52,7 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health) (Salt Lake City) 
 - [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health) (Salt Lake City)
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
+- TrevorText, text START to 678678 (confidential text message with a counselor through The Trevor Project)
 
 
 ## 🏳️‍🌈 Workplaces for Teens
