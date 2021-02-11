@@ -77,8 +77,6 @@ List under construction...
 ## 🏳️‍🌈 Help for School Clubs
 
 [Our local GSAs](/resources/gsas.html)
-[Join the National GSA Leadership Coalition(GLSEN)](https://act.glsen.org/a/national-gsa-leadership-coalition)
-[Register your GSA with GLSEN for access to their support!](https://www.studentorganizing.org) 
 
 - [GSA Network ~ What is a GSA club?](https://gsanetwork.org/what-is-a-gsa/) 
 - [ACLU ~ How to Start a Gay-Straight Alliance (GSA)](https://www.aclu.org/other/how-start-gay-straight-alliance-gsa) 
@@ -89,7 +87,9 @@ List under construction...
 - [GLSEN ~ Know Your Rights](https://www.glsen.org/knowyourrights)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
 
-Looking for additional help? GLSEN has a [northern Utah chapter](https://www.glsen.org/chapters/northern-utah-chapter)!  
+[Join the National GSA Leadership Coalition(GLSEN)](https://act.glsen.org/a/national-gsa-leadership-coalition)
+
+[Register your GSA with GLSEN for access to their support!](https://www.studentorganizing.org) 
 
 
 ## 🏳️‍🌈 Teen & Family Support (UT/southSL counties)
