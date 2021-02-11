@@ -7,7 +7,7 @@ We highly recommend these amazing lists by HRC's Welcoming Schools and Bookshop.
 
 [Bookshop.Org's LGBT teen list](https://bookshop.org/t/bisac/yaf/031000)
 
-[Diverse LGBTQ Inclusive Middle Grade Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Middle_Grade_Books_-_Family.pdf)
+[LGBTQ Inclusive Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Middle_Grade_Books_-_Family.pdf)
 
 - [Aristotle and Dante Discover the Secrets of the Universe](https://bookshop.org/books/aristotle-and-dante-discover-the-secrets-of-the-universe/9781442408937) by Benjamin Alire Sáenz
 - [Darius the Great is Not Okay](https://bookshop.org/books/darius-the-great-is-not-okay/9780525552970) by Adib Khorram
