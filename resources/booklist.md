@@ -3,6 +3,12 @@ title: Booklist
 ---
 
 ## YA Novels & Nonfiction 
+We highly recommend these amazing lists by HRC's Welcoming Schools and Bookshop.Org, a book outlet supporting small bookstores!
+
+[Bookshop.Org's LGBT teen list](https://bookshop.org/t/bisac/yaf/031000)
+
+[Diverse LGBTQ Inclusive Middle Grade Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Middle_Grade_Books_-_Family.pdf)
+
 - [Aristotle and Dante Discover the Secrets of the Universe](https://bookshop.org/books/aristotle-and-dante-discover-the-secrets-of-the-universe/9781442408937) by Benjamin Alire Sáenz
 - [Darius the Great is Not Okay](https://bookshop.org/books/darius-the-great-is-not-okay/9780525552970) by Adib Khorram
 - [The Gentleman’s Guide to Vice and Virtue](https://bookshop.org/books/the-gentleman-s-guide-to-vice-and-virtue/9780062382818) by Mackenzi Lee
@@ -21,12 +27,18 @@ title: Booklist
 - [We Are Okay](https://bookshop.org/books/we-are-okay/9780142422939) by Nina Lacour
 - [We Contain Multitudes](https://bookshop.org/books/we-contain-multitudes/9780316524650) by Sarah Henstra
 - [The Whispers](https://bookshop.org/books/the-whispers-9781984838407/9780525517511) by Greg Howard
-- [Zenobia July](https://bookshop.org/books/zenobia-july/9780451479402) by Lisa Bunker
-
-More lists! [Bookshop.Org's LGBT teen list](https://bookshop.org/t/bisac/yaf/031000), [Welcoming Schools HRC Diverse LGBTQ Inclusive Middle Grade Books](https://assets2.hrc.org/welcoming-schools/documents/WS_LGBTQ_Inclusive_Middle_Grade_Books_-_Family.pdf) 
+- [Zenobia July](https://bookshop.org/books/zenobia-july/9780451479402) by Lisa Bunker 
 
 
-## Board, Picture, & NonFiction Books 
+## Kids Nonfiction, Board, & Picture Books 
+
+🏳️‍🌈 NonFiction
+- [Be Amazing: A History of Pride](https://bookshop.org/books/be-amazing-a-history-of-pride/9780374312589), written by Desmond Napoles & illustrated by Dylan Glynn 
+- [Gay & Lesbian History for Kids: The Century-Long Struggle for Lgbt Rights, with 21 Activities](https://bookshop.org/books/gay-lesbian-history-for-kids-the-century-long-struggle-for-lgbt-rights-with-21-activities/9781613730829), written by Jerome Pohlen 
+- [Keith Haring: The Boy Who Just Kept Drawing](https://bookshop.org/books/keith-haring-the-boy-who-just-kept-drawing/9780525428190), written by Kay Haring & illustrated by Robert Neubecker
+- [Stonewall: A Building, an Uprising, a Revolution](https://bookshop.org/books/stonewall-a-building-an-uprising-a-revolution/9781524719524), written by Rob Sanders & illustrated by Jamey Christoph 
+- [What Was Stonewall?](https://bookshop.org/books/what-was-stonewall/9781524786007), written by Nico Medina and Who Hq & illustrated by Jake Murray
+- [Who Was Harvey Milk?](https://bookshop.org/books/who-was-harvey-milk/9781524792787), written by Corinne A. Grinapol and  Who Hq & illustrated by Gregory Copeland 
 
 🏳️‍🌈 Board Books 
 - [Baby's First Words](https://www.amazon.com/Babys-First-Words-Stella-Blackstone/dp/1782853219), written by Stella Blackstone and Sunny Scribens & illustrated by Christiane Engel
@@ -78,13 +90,4 @@ More books! [Welcoming Schools HRC Diverse LGBTQ Inclusive Picture Books](https:
 - [This Day in June](https://bookshop.org/books/this-day-in-june/9781433816598), written by Gayle E. Pitman & illustrated by Kristyna Litten 
 - [When Aidan Became a Brother](https://bookshop.org/books/when-aidan-became-a-brother/9781620148372), written by Kyle Lukoff & illustrated by Kaylani Juanita
 - [Worm Loves Worm](https://bookshop.org/books/worm-loves-worm/9780062386335), written by J J Austrian & illustrated by Mike Curato
-
-
-🏳️‍🌈 NonFiction
-- [Be Amazing: A History of Pride](https://bookshop.org/books/be-amazing-a-history-of-pride/9780374312589), written by Desmond Napoles & illustrated by Dylan Glynn 
-- [Gay & Lesbian History for Kids: The Century-Long Struggle for Lgbt Rights, with 21 Activities](https://bookshop.org/books/gay-lesbian-history-for-kids-the-century-long-struggle-for-lgbt-rights-with-21-activities/9781613730829), written by Jerome Pohlen 
-- [Keith Haring: The Boy Who Just Kept Drawing](https://bookshop.org/books/keith-haring-the-boy-who-just-kept-drawing/9780525428190), written by Kay Haring & illustrated by Robert Neubecker
-- [Stonewall: A Building, an Uprising, a Revolution](https://bookshop.org/books/stonewall-a-building-an-uprising-a-revolution/9781524719524), written by Rob Sanders & illustrated by Jamey Christoph 
-- [What Was Stonewall?](https://bookshop.org/books/what-was-stonewall/9781524786007), written by Nico Medina and Who Hq & illustrated by Jake Murray
-- [Who Was Harvey Milk?](https://bookshop.org/books/who-was-harvey-milk/9781524792787), written by Corinne A. Grinapol and  Who Hq & illustrated by Gregory Copeland 
 
