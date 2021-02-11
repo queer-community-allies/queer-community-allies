@@ -77,6 +77,9 @@ List under construction...
 ## 🏳️‍🌈 Help for School Clubs
 
 [Our local GSAs](/resources/gsas.html)
+[Join the National GSA Leadership Coalition(GLSEN)](https://act.glsen.org/a/national-gsa-leadership-coalition)
+[Register your GSA with GLSEN for access to their support!](https://www.studentorganizing.org) 
+
 - [GSA Network ~ What is a GSA club?](https://gsanetwork.org/what-is-a-gsa/) 
 - [ACLU ~ How to Start a Gay-Straight Alliance (GSA)](https://www.aclu.org/other/how-start-gay-straight-alliance-gsa) 
 - [Teaching Tolerance ~ 10 Tips for Starting a GSA](https://www.tolerance.org/magazine/10-tips-for-starting-a-gsa)
@@ -99,6 +102,7 @@ Looking for additional help? GLSEN has a [northern Utah chapter](https://www.gls
 - [Queer Meals (Provo)](http://queermeals.com)  
 
 [More support](/utsupportservices) in Utah County for college students, and for teens and families across Utah. 
+[ADL Table Talk](https://www.adl.org/education/resources/tools-and-strategies/table-talk), guides and questions to start conversations and dig deeper 
 
 
 ## 🏳️‍🌈 Dating 
@@ -123,11 +127,14 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 - Did you know? [News: Utah Repeals 'No Promo Homo' Law](https://www.hrw.org/news/2017/03/21/utah-repeals-no-promo-homo-law) 
 - [10 virtual activity ideas](https://youthassistingyouth.com/10-virtual-activities-kids-mentors-covid-19/) from Youth Assisting Youth for virtual mentoring relationships. 
 - Due to COVID, Gender Spectrum hosted a webinar, "Creating Online Spaces for LGBTQ+ Groups." [More info here](https://www.genderspectrum.org/articles/blog-covid-resources). 
+
+- ADL Lessons & mini Lessons: [Understanding Heterosexism and How to Be an Ally](https://www.adl.org/education/educator-resources/lesson-plans/understanding-heterosexism-and-how-to-be-an-ally), [Microaggressions](https://www.adl.org/education/educator-resources/lesson-plans/mini-lesson-microaggressions-0), [Let's Get It Right: Using Corrent Pronouns and Names](https://www.adl.org/education/resources/tools-and-strategies/lets-get-it-right-using-correct-pronouns-and-names), [Identity Iceberg](https://www.adl.org/education/educator-resources/lesson-plans/mini-lesson-identity-iceberg), and more
 - [GLSEN Educator Resources](https://www.glsen.org/resources/educator-resources)
 - [HRC + National Education Association virtual teaching checklist, Zoom backgrounds, tips & more!](https://www.hrc.org/news/a-new-resource-for-educators-on-supporting-lgbtq-students-during-distance-l)
 - [HRC's Project Thrive](https://www.thehrcfoundation.org/professional-resources/project-thrive) - build the skills and capacities of all youth-serving professionals to better meet the needs of LGBTQ young people.
 - [LGBTQ History.Org Teaching Instructional Resources](http://www.lgbtqhistory.org/lgbtq-educational-resources/) 
 - [Making Caring Common Project: Supporting LGBTQIA Youth Resource List](https://mcc.gse.harvard.edu/resources-for-educators/supporting-lgbtqia-youth-resource-list) - from Harvard Graduate School of Education 
+- [No Place for Hate](https://noplaceforhate.org) 
 - [SafeSpaceUT](https://safespaceut.com)
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
 
