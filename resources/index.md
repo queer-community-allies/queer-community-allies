@@ -103,7 +103,8 @@ List under construction...
 - [Queer Meals (Provo)](http://queermeals.com)  
 
 [More support](/utsupportservices) in Utah County for college students, and for teens and families across Utah. 
-[ADL Table Talk](https://www.adl.org/education/resources/tools-and-strategies/table-talk), guides and questions to start conversations and dig deeper 
+
+[ADL Table Talk](https://www.adl.org/education/resources/tools-and-strategies/table-talk), guides and questions to start conversations and dig deeper. 
 
 
 ## 🏳️‍🌈 Dating 
@@ -139,7 +140,7 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 - [SafeSpaceUT](https://safespaceut.com)
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
 
-(For our elementary teacher friends!) [WelcomingSchools.Org Resources for an LGBTQ and Gender Inclusive School](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/) 
+(For our elementary teacher friends!) [WelcomingSchools.Org](https://www.welcomingschools.org/resources/school-tips/lgbtq-inclusive-schools-what/lgbtq-how/), "Resources for an LGBTQ and Gender Inclusive School" 
 
 
 ## 🏳️‍🌈 Scholarships
