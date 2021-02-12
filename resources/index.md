@@ -6,18 +6,19 @@ menu-title: Resources
 ## Scroll to find... 
 - Virtual connections during the COVID-19 pandemic
 - Online glossaries of Queer terms
+- Coming out 
+- Virtual spaces, podcasts, & information
+- Teen & family support (local)
 - Health providers and therapists 
 - Workplaces for teens
 - Teams, interest groups, and hangout spots
 - Teen volunteer opportunities
 - Help for school clubs
-- Teen & family support (local)
 - Dating 
 - For teachers
 - Scholarships 
 - Booklist (teens & kids)
 - Additional Utah services & organizations (further than local)
-- Virtual spaces, podcasts, & information
 
 ## Virtual Connections during the COVID-19 pandemic
   
@@ -41,6 +42,51 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - [LGBTQIA Resource Center Glossary (UC Davis)](https://lgbtqia.ucdavis.edu/educated/glossary?fbclid=IwAR2oeHVRlGOWoJ_CiwzkxRTjaeR1GZJcZEmq_PgvSb9EAywPr4-0W-CDD-0)
 - [MyProunouns.org](https://www.mypronouns.org)
 - [National Glossary of Terms (PFLAG)](https://pflag.org/glossary?fbclid=IwAR35pBB0uTPRBIRJiqZN3XIaqHkvBITuZp8_SeCIubZTYzPqGUdxIRL2w3U)
+
+
+## 🏳️‍🌈 Coming Out: Resources for Youth and Families
+
+- [ADL Table Talk](https://www.adl.org/education/resources/tools-and-strategies/table-talk), guides and questions to start conversations and dig deeper. 
+- [Be Yourself: Questions and Answers for Lesbian, Gay, Bisexual, Transgender, Queer and Questioning Youth](https://pflag.org/resource/be-yourself), from PFLAG
+- [Coming Out: A Handbook for LGBTQ Young People](https://www.thetrevorproject.org/trvr_support_center/coming-out/), from the Trevor Project Trevor Support Center
+- [Family Acceptance Project](https://familyproject.sfsu.edu) at San Francisco State University 
+- [Our Children: Questions and Answers for Families of Lesbian, Gay, Bisexual, Transgender, Gender-Expansive and Queer Youth and Adults](https://pflag.org/resource/our-children), from PFLAG 
+- [Parents and Family](https://www.genderspectrum.org/audiences/parents-and-family) by Gender Spectrum 
+
+
+## 🏳️‍🌈 Virtual Spaces, Podcasts, & Information 
+
+- [Advocates for Youth: Are you an askable parent?](https://advocatesforyouth.org/resources/health-information/are-you-an-askable-parent/)
+- [Advocates for Youth: Fact Sheet Puberty Blocker Pills](https://advocatesforyouth.org/resources/fact-sheets/explainer-puberty-blocker-bills/)
+- [Gender Spectrum ~ Education](https://www.genderspectrum.org/resources/education-2/)
+- [Gender Spectrum ~ Faith](https://www.genderspectrum.org/resources/faith-2/)
+- [Gender Spectrum ~ Schools in Transition: A Guide for Supporting Transgender Students in K-12 Schools](https://www.genderspectrum.org/staging/wp-content/uploads/2015/08/Schools-in-Transition-2015.pdf)
+- [Gender Spectrum ~ Medical](https://www.genderspectrum.org/resources/medical-2/)
+- [Gender Spectrum ~ Mental Health](https://www.genderspectrum.org/resources/mental-health-2/)
+- [Gender Spectrum ~ Parenting & Family](https://www.genderspectrum.org/explore-topics/parenting-and-family/)
+- [Gender Spectrum ~ Teens](https://www.genderspectrum.org/resources/teens-2/)
+- [History is Gay podcast](https://www.historyisgaypodcast.com)
+- [HRC A Parent's Quick Guide for In-School Transitions: Empowering Families and Schools to Support Transgender and Non-Binary Students](https://hrc-prod-requests.s3-us-west-2.amazonaws.com/assets/ParentsGuideForSchoolTransitions.pdf)
+- [HRC Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+- [It Gets Better Project](https://itgetsbetter.org)
+- [More than Sad (be smarter about mental health) for High school students, Parents, Teachers](https://afsp.org/more-than-sad) 
+- [Planned Parenthood: All About Sex, Gender, and Gender Identity](https://www.plannedparenthood.org/learn/teens/all-about-sex-gender-and-gender-identity)
+- [Planned Parenthood: Sexual Orientation](https://www.plannedparenthood.org/learn/teens/sexual-orientation) 
+- [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
+- [The Trevor Project](https://www.thetrevorproject.org)
+- [TrevorSpace](https://www.trevorspace.org/?utm_source=trevor_website&utm_medium=web&utm_campaign=get_help_page)  
+ 
+ 
+## 🏳️‍🌈 Teen & Family Support (UT/southSL counties)
+
+- [Encircle (Provo)](www.EncircleTogether.org)  
+- [Dragon Dads](https://www.facebook.com/DragonDads/)  
+- [Gender Bands (Orem)](https://www.genderbands.org)  
+- [Mama Dragons](https://mamadragons.org) 
+- [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
+- [Queer Meals (Provo)](http://queermeals.com)  
+
+[More support](/utsupportservices) in Utah County for college students, and for teens and families across Utah. 
 
 
 ## 🏳️‍🌈 Health Providers & Therapists for Teens
@@ -93,20 +139,6 @@ List under construction...
 [Register your GSA with GLSEN for access to their support!](https://www.studentorganizing.org) 
 
 
-## 🏳️‍🌈 Teen & Family Support (UT/southSL counties)
-
-- [Encircle (Provo)](www.EncircleTogether.org)  
-- [Dragon Dads](https://www.facebook.com/DragonDads/)  
-- [Gender Bands (Orem)](https://www.genderbands.org)  
-- [Mama Dragons](https://mamadragons.org) 
-- [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
-- [Queer Meals (Provo)](http://queermeals.com)  
-
-[More support](/utsupportservices) in Utah County for college students, and for teens and families across Utah. 
-
-[ADL Table Talk](https://www.adl.org/education/resources/tools-and-strategies/table-talk), guides and questions to start conversations and dig deeper. 
-
-
 ## 🏳️‍🌈 Dating 
 
 - [AMAZE](https://amaze.org) (or their [YouTube channel](https://www.youtube.com/c/amazeorg)) 
@@ -152,26 +184,3 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 
 ## 🏳️‍🌈 [Additional Utah Services & Organizations ](/utsupportservices)
 
-
-## 🏳️‍🌈 Virtual Spaces, Podcasts, & Information 
-
-- [Advocates for Youth: Are you an askable parent?](https://advocatesforyouth.org/resources/health-information/are-you-an-askable-parent/)
-- [Advocates for Youth: Fact Sheet Puberty Blocker Pills](https://advocatesforyouth.org/resources/fact-sheets/explainer-puberty-blocker-bills/)
-- [Gender Spectrum ~ Education](https://www.genderspectrum.org/resources/education-2/)
-- [Gender Spectrum ~ Faith](https://www.genderspectrum.org/resources/faith-2/)
-- [Gender Spectrum ~ Schools in Transition: A Guide for Supporting Transgender Students in K-12 Schools](https://www.genderspectrum.org/staging/wp-content/uploads/2015/08/Schools-in-Transition-2015.pdf)
-- [Gender Spectrum ~ Medical](https://www.genderspectrum.org/resources/medical-2/)
-- [Gender Spectrum ~ Mental Health](https://www.genderspectrum.org/resources/mental-health-2/)
-- [Gender Spectrum ~ Parenting & Family](https://www.genderspectrum.org/explore-topics/parenting-and-family/)
-- [Gender Spectrum ~ Teens](https://www.genderspectrum.org/resources/teens-2/)
-- [History is Gay podcast](https://www.historyisgaypodcast.com)
-- [HRC A Parent's Quick Guide for In-School Transitions: Empowering Families and Schools to Support Transgender and Non-Binary Students](https://hrc-prod-requests.s3-us-west-2.amazonaws.com/assets/ParentsGuideForSchoolTransitions.pdf)
-- [HRC Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
-- [It Gets Better Project](https://itgetsbetter.org)
-- [More than Sad (be smarter about mental health) for High school students, Parents, Teachers](https://afsp.org/more-than-sad) 
-- [Planned Parenthood: All About Sex, Gender, and Gender Identity](https://www.plannedparenthood.org/learn/teens/all-about-sex-gender-and-gender-identity)
-- [Planned Parenthood: Sexual Orientation](https://www.plannedparenthood.org/learn/teens/sexual-orientation) 
-- [Straight for Equality ~ allies toolbox](http://www.straightforequality.org/allyspectrum)
-- [The Trevor Project](https://www.thetrevorproject.org)
-- [TrevorSpace](https://www.trevorspace.org/?utm_source=trevor_website&utm_medium=web&utm_campaign=get_help_page)  
- 
