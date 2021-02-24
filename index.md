@@ -2,6 +2,18 @@
 title: Welcome
 --- 
 
+![coming up](files/Help Me Flourish Flyer community.jpg)
+
+Coming up! 
+
+Help Me Flourish an educational support group for adult allies of lgbtqia+ youth
+
+Register [HERE!](https://docs.google.com/forms/d/e/1FAIpQLSem6-yuoExuTiQo0WEKfHdZItBnRhj_odWUhD0gFuNr10lvTQ/viewform)
+
+Starting March 27, join a new group for anyone who is an ally of lgbtqia+ youth! Every Saturday 4pm to 5:30 (Zoom link will be sent out to those registered the Friday before)
+
+By Flourish Therapy Inc. and Queer Community Allies
+ 
 ## Stay connected! 
 
 #SafeHands #CoronaKindness #SchoolSafety #COVID19  
