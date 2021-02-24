@@ -2,7 +2,8 @@
 title: Welcome
 --- 
 
-![coming up](files/Help Me Flourish Flyer community.jpg)
+
+![coming up](/files/Help Me Flourish Flyer community.jpg)
 
 Coming up! 
 
