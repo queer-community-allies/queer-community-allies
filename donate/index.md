@@ -9,8 +9,7 @@ There are multiple ways to donate to Queer Community Allies! Check out one of th
 - [Donate via PayPal](/donate/paypal)
 - [Donate via Venmo](/donate/venmo)
 
-Thank you to everyone who participated in our holiday donation drive! We raised over $800! All donations will support ongoing projects, provide care package items and swag for GSAs (2020-2021), and be a starting fund for efforts in the 2021-2022 school year, post-COVID. 
-![2020 Holiday Drawing](/files/holidaydrawingsmall.jpg)
+Thank you to everyone who participated in our holiday donation drive! We raised over $800! All donations will support ongoing projects, provide care package items and swag for GSAs (2020-2021), and be a starting fund for efforts in the 2021-2022 school year, post-COVID.
 
 
 We also have a storefront! [QueerCommunityAllies at Zazzle.com](https://www.zazzle.com/store/queercommunityallies) 
