@@ -64,7 +64,7 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - YogaVega (2019) 
 
 
-![this month's calendar](/files/calendarFeb1.jpg) 
+![this month's calendar](/files/calmarch.jpg) 
 ![a pride community](/files/Prideflagslist.jpg)
 
 Logo design by Larissa Norman
