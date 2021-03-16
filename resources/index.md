@@ -68,6 +68,7 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - [History is Gay podcast](https://www.historyisgaypodcast.com)
 - [HRC A Parent's Quick Guide for In-School Transitions: Empowering Families and Schools to Support Transgender and Non-Binary Students](https://hrc-prod-requests.s3-us-west-2.amazonaws.com/assets/ParentsGuideForSchoolTransitions.pdf)
 - [HRC Growing Up LGBT in America](https://assets2.hrc.org/files/assets/resources/Growing-Up-LGBT-in-America_Report.pdf?_ga=2.60004205.1339043274.1565720275-649889802.1565720275)
+- [HRC Supporting Your Young Gender Non-Conforming Child](https://www.hrc.org/resources/supporting-your-young-gender-non-conforming-child)
 - [It Gets Better Project](https://itgetsbetter.org)
 - [More than Sad (be smarter about mental health) for High school students, Parents, Teachers](https://afsp.org/more-than-sad) 
 - [Planned Parenthood: All About Sex, Gender, and Gender Identity](https://www.plannedparenthood.org/learn/teens/all-about-sex-gender-and-gender-identity)
@@ -168,6 +169,8 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 - [HRC's Project Thrive](https://www.thehrcfoundation.org/professional-resources/project-thrive) - build the skills and capacities of all youth-serving professionals to better meet the needs of LGBTQ young people.
 - [LGBTQ History.Org Teaching Instructional Resources](http://www.lgbtqhistory.org/lgbtq-educational-resources/) 
 - [Making Caring Common Project: Supporting LGBTQIA Youth Resource List](https://mcc.gse.harvard.edu/resources-for-educators/supporting-lgbtqia-youth-resource-list) - from Harvard Graduate School of Education 
+- [National Association of Secondary School Principals board of directors statement on supporting LGBTQ+ Students & Educators](https://www.nassp.org/top-issues-in-education/position-statements/lgbtq-students-and-educators/)
+- [National Association of School Nurses position on LGBTQ youth](https://www.nasn.org/advocacy/professional-practice-documents/position-statements/ps-lgbtq)
 - [No Place for Hate](https://noplaceforhate.org) 
 - [SafeSpaceUT](https://safespaceut.com)
 - [Trevor Project Trevor Support Center: In School](https://www.thetrevorproject.org/trvr_support_center/in-school/)
