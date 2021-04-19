@@ -3,22 +3,6 @@ title: Resources
 menu-title: Resources
 ---
 
-## Scroll to find... 
-- Virtual connections during the COVID-19 pandemic
-- Online glossaries of Queer terms
-- Coming out 
-- Virtual spaces, podcasts, & information
-- Teen & family support (local)
-- Health providers and therapists 
-- Workplaces for teens
-- Teams, interest groups, and hangout spots
-- Teen volunteer opportunities
-- Help for school clubs
-- Dating 
-- For teachers
-- Scholarships 
-- Booklist (teens & kids)
-- Additional Utah services & organizations (further than local)
 
 ## Virtual Connections during the COVID-19 pandemic
   
