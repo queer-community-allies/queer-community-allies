@@ -7,10 +7,7 @@ title: Utah Support & Services
 
 - [Affirmation: LGBTQ Mormons, Families & Friends](https://affirmation.org)
 - [Encircle](https://encircletogether.org) (SLC & St. George) 
-- [The OUT Foundation](https://www.theout.foundation), empowering LGBTQ+ BYU alumni & current students 
 - [Peculiar](https://www.thepeculiar.org), inspiring parents to unconditionally love their LGBTQ+ children 
-- Spectrum: QSA at UVU
-- USGA at BYU
 - [Utah Pride Center](https://utahpridecenter.org)
 - [Youth Futures](https://www.youthfuturesutah.org) (Ogden & St. George), home for vulnerable and homeless youth 
 
@@ -30,10 +27,14 @@ Trans Services
 - [Transgender Education Advocates - TEA of Utah](http://www.teaofutah.org)
 
 MORE! 
+- [FAM Utah Educators for LGBTQ-Inclusive Schools](https://utahfam.org) 
+- [The OUT Foundation](https://www.theout.foundation), empowering LGBTQ+ BYU alumni & current students 
 - [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) 
 - [QUAC - Queer Utah Aquatic Club](https://www.quacquac.org) 
-- [Rainbow Law, LGBT + Allied Lawyers of Utah](http://www.lgbtutahlawyers.com/directory) 
+- [Rainbow Law, LGBT + Allied Lawyers of Utah](http://www.lgbtutahlawyers.com/directory)
+- Spectrum: QSA at UVU
 - [Stonewall Sports SLC](http://www.stonewallsportsslc.org) 
+- USGA at BYU 
 - [Utah Aids Foundation](http://www.utahaids.org)
 - [Utah LGBTQ+ Chamber of Commerce](https://www.utahgaychamber.com)
 
