@@ -6,20 +6,6 @@ title: Welcome
 
 Click the image above to shop our Amazon Smile charity wishlist! 
 
-[![coming up](files/HelpMeFlourishFlyercommunity.jpg)](https://docs.google.com/forms/d/e/1FAIpQLSem6-yuoExuTiQo0WEKfHdZItBnRhj_odWUhD0gFuNr10lvTQ/viewform)
-
-Help Me Flourish is a new, free, educational support group for adult allies of lgbtqia+ youth! Register [HERE](https://docs.google.com/forms/d/e/1FAIpQLSem6-yuoExuTiQo0WEKfHdZItBnRhj_odWUhD0gFuNr10lvTQ/viewform) or click the flyer image above! 
-
-Starting March 27, every Saturday 4pm to 5:30 for 6 weeks. (Zoom link will be sent out to those registered the Friday before.)
-
-- basics of gender and sexual identity
-- mental health and lgbtqia+ kids and how to help
-- how to create an inclusive environment
-- legal issues and how to advocate for lgbtqia+ kids
-- resources, resources, resources
-- guest panel 
-
-By Flourish Therapy Inc. and Queer Community Allies
  
 ## Stay connected! 
 
