@@ -5,7 +5,7 @@ menu-title: Donate
 
 There are multiple ways to donate to Queer Community Allies! Check out one of the links below. Our EIN is `84-2519026`
 
-Shop our Amazon Smile charity [wishlist](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)! 
+Shop our Amazon Smile charity [wishlist](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)! All items will go into care packages for GSAs to close up the 2020-2021 school year!
 
 <a target="_blank" href="https://donorbox.org/queer-community-allies-donations"><img src="https://d1iczxrky3cnb2.cloudfront.net/button-medium-blue.png" /></a>
 - [Donate via PayPal](/donate/paypal)
