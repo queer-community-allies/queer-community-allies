@@ -4,6 +4,8 @@ title: Welcome
 
 [![shop our wishlist](files/qcawishsmile.jpg)](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)
 
+Click the image above to shop our Amazon Smile charity wishlist! 
+
 [![coming up](files/HelpMeFlourishFlyercommunity.jpg)](https://docs.google.com/forms/d/e/1FAIpQLSem6-yuoExuTiQo0WEKfHdZItBnRhj_odWUhD0gFuNr10lvTQ/viewform)
 
 Help Me Flourish is a new, free, educational support group for adult allies of lgbtqia+ youth! Register [HERE](https://docs.google.com/forms/d/e/1FAIpQLSem6-yuoExuTiQo0WEKfHdZItBnRhj_odWUhD0gFuNr10lvTQ/viewform) or click the flyer image above! 
