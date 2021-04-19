@@ -5,7 +5,7 @@ menu-title: Events
 
 Stay safe! #COVID19 #SafeHands #TogetherAtHome #CoronaKindness
 
-[![coming up](files/HelpMeFlourishFlyercommunity.jpg)](https://docs.google.com/forms/d/e/1FAIpQLSem6-yuoExuTiQo0WEKfHdZItBnRhj_odWUhD0gFuNr10lvTQ/viewform)
+[![help me flourish](files/HelpMeFlourishFlyercommunity.jpg)](https://docs.google.com/forms/d/e/1FAIpQLSem6-yuoExuTiQo0WEKfHdZItBnRhj_odWUhD0gFuNr10lvTQ/viewform)
 
 Help Me Flourish is a new, free, educational support group for adult allies of lgbtqia+ youth! Register [HERE](https://docs.google.com/forms/d/e/1FAIpQLSem6-yuoExuTiQo0WEKfHdZItBnRhj_odWUhD0gFuNr10lvTQ/viewform) or click the flyer image above! 
 
