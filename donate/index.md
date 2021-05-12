@@ -5,7 +5,7 @@ menu-title: Donate
 
 There are multiple ways to donate to Queer Community Allies! Check out one of the links below. Our EIN is `84-2519026`
 
-[![shop our wishlist](files/qcawishsmile.jpg)](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)
+[![shop our wishlist](/files/qcawishsmile.jpg)](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)
 
 Click the image above to shop our Amazon Smile charity wishlist! All items will go into care packages for local GSAs!
 
