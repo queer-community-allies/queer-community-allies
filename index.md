@@ -38,7 +38,6 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 
 ## A big thank you to local businesses that have supported Queer Community Allies & GSAs! 
 
-- American Name Services (2019)
 - Backyard Bookkeeper (2019)
 - Beans & Brews (2019)
 - Coffee Creations (2019)
@@ -48,8 +47,6 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - MOD Pizza Saratoga Springs (2020)
 - Mojo Printing (2020)
 - Revolution Print & Packaging (2020) 
-- Shirtbatter (2019)
-- YogaVega (2019) 
 
 
 ![this month's calendar](/files/calMay.jpg) 
