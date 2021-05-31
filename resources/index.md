@@ -4,7 +4,7 @@ menu-title: Resources
 ---
 
 
-## Virtual Connections during the COVID-19 pandemic
+## Virtual connections this summer
   
 - [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)! Teens (ages 13-19), Black Trans and Non-Binary Teen Group, Pre-Teens (ages 10-12), National Parent Support Group, and [so many more](https://www.genderspectrum.org/articles/blog-covid-resources). 
 - [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
