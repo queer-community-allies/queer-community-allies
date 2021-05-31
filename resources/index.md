@@ -15,7 +15,7 @@ menu-title: Resources
 - [SafeUT](https://safeut.med.utah.edu)
 - Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
 
-If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). #SafeHands #CoronaKindness #SchoolSafety #COVID19  
+If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). #mentalhealthmatters #pandemicmentalhealth #lgbtqmentalhealth #mentalhealthawareness #suicideprevention #lgbtq #bornperfect #equalitymatters #accelerateacceptance #prideeverywhere
 
 ## 🏳️‍🌈 Online Glossaries of Queer Terms
 
