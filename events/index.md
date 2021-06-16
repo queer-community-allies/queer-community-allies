@@ -3,6 +3,10 @@ title: Events
 menu-title: Calendar
 ---
 
+June 26th @ 8pm *Equality Utah, Utah Pride Center, FAM Utah, and the Real Monarchs are partnering to honoring students and teachers working towards more inclusive schools!* We have some tickets to share for students and teachers! Reach out to us at contact(at)queercommunityallies(dot)org. Read more about Real Monarchs [theme nights here](https://www.rsl.com/monarchs/theme-nights).  
+
+![monarchs pride night](/files/monarchpride.jpg)
+
 [Utah Pride Center PRIDE June 1-7](https://utahpridecenter.org/pride-and-center/pride-week-2021/) and more [events](https://utahpridecenter.org/pride-and-center/)! 
 
 Follow us on Instagram [@QueerCommunityAllies](https://www.instagram.com/queercommunityallies/) or [Facebook](https://www.facebook.com/QueerCommunityAllies) where we link to lots of virtual events! 
