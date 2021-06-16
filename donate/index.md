@@ -9,7 +9,7 @@ There are multiple ways to help!
  - donate money 
  - reach out to YOUR local high school & ask them to put you in touch with their GSA advisor #AdoptaGSA 
   
-## To donate money, check out one of the links below
+## Donate money
 
 Shop our Amazon Smile [charity wishlist](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)! All items will go into care packages for local GSAs!
 
@@ -24,11 +24,11 @@ Shop our [QueerCommunityAllies Zazzle swag](https://www.zazzle.com/store/queerco
 
 Our EIN is `84-2519026`
 
-## Our volunteer board of directors do the work! 
+## Volunteer board of directors 
 
-- We meet, discuss, plan, coordinate, and visit. 
-- We currently have 5 board members with capacity for 10. 
+- We do the work! We meet, discuss, plan, coordinate, and visit. 
 - We vote on important decisions and maintain our bylaws. 
+- We currently have 5 board members with capacity for 10. 
 - Some of our board members hold an office (president, vice president, secretary, treasurer). We trade off other assignments (website, social media, visiting schools, digital accounts, GSA advisor contact, paperwork, etc) based on who has availability and interest in the moment. We're very collaborative! 
 - We meet at least every three months and often every month, hour tops. We also email and text each other. 
 - We each spend two or three hours a month on QCA work. 
