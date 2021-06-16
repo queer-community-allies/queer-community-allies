@@ -8,19 +8,19 @@ This list is for our local Utah County & south Salt Lake County LGBTQQIPPA+ teen
 
 - [Virtual connections this summer](#virtual-connections-this-summer)
 - [Online Glossaries of Queer Terms](#️-online-glossaries-of-queer-terms)
-- Coming Out: Resources for Youth and Families 
-- Virtual Spaces, Podcasts, & Information
+- [Coming Out: Resources for Youth and Families](#️-coming-out-resources-for-youth-and-families)
+- [Virtual Spaces, Podcasts, & Information](#️-virtual-spaces-podcasts--information)
 - [Teen & Family Support (UT/southSL counties)](#️-teen--family-support-utsouthsl-counties)
-- Health Providers & Therapists for Teens
-- Workplaces for Teens
-- Teams, Interest Groups & Hangout Spots
-- Teen Volunteer Opportunities 
-- Help for School Clubs
-- Dating
-- For Teachers
-- Scholarships
-- [Booklist - Teens + Kids]
-- [Additional Utah Services & Organizations]
+- [Health Providers & Therapists for Teens](#️-health-providers--therapists-for-teens)
+- [Workplaces for Teens](#️-workplaces-for-teens)
+- [Teams, Interest Groups & Hangout Spots](#️-teams-interest-groups--hangout-spots)
+- [Teen Volunteer Opportunities](#️-teen-volunteer-opportunities)
+- [Help for School Clubs](#️-help-for-school-clubs)
+- [Dating](#️-dating)
+- [For Teachers](#️-for-teachers)
+- [Scholarships](#️-scholarships)
+- [Booklist - Teens + Kids](#️-booklist---teens--kids)
+- [Additional Utah Services & Organizations](#️-additional-utah-services--organizations)
 
 
 ## Virtual connections this summer
