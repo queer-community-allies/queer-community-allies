@@ -1,6 +1,6 @@
 ---
 title: Events
-menu-title: Events
+menu-title: Calendar
 ---
 
 [Utah Pride Center PRIDE June 1-7](https://utahpridecenter.org/pride-and-center/pride-week-2021/) and more [events](https://utahpridecenter.org/pride-and-center/)! 
