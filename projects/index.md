@@ -1,6 +1,6 @@
 ---
 title: On-Going Projects
-menu-title: On-Going Projects
+menu-title: Projects
 ---
 
 ## Local GSA Support 
