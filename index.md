@@ -4,11 +4,11 @@ title: Welcome
 
 ## We need help! 
 
-We need board members! 
+We need 5 more board members! What does a board member do? 
 
-- 1 hr meeting every couple months + virtual contact 
-- Locals with a desire to help
-- 18+ 
+- 1-hour meet every couple months + ongoing virtual contact 
+- Volunteer their time, energy, and enthusiasm
+- Locals (18+) with a desire to help
 
 Our next meeting is in July! Email us if you're interest in getting an invite - contact@queercommunityallies.org. Come see what we're all about! [Learn more](/donate/#volunteer-board-of-directors). 
 
