@@ -37,18 +37,6 @@ Our EIN is `84-2519026`
  
 Interested? Email us! contact(at)queercommunityallies(org). 
 
-## 10 Ways to Be an Ally & a Friend (from GLAAD)  
-
-- Be a listener.
-- Be open-minded.
-- Be willing to talk.
-- Be inclusive.
-- Don't assume that your friends and co-workers are straight. Someone close to you could be looking for support in their coming-out process. 
-- Anti-LGBT comments and jokes are harmful. Vocalize that you find them offensive.
-- Confront your own prejudices and bias, even if it is uncomfortable to do so.
-- Defend your LGBT friends against discrimination.
-- Believe that all people, regardless of gender identity and sexual orientation, should be treated with dignity and respect.
-
 
 ## A big thank you to local businesses that have supported Queer Community Allies & GSAs! 
 
@@ -61,5 +49,17 @@ Interested? Email us! contact(at)queercommunityallies(org).
 - MOD Pizza Saratoga Springs (2020)
 - Mojo Printing (2020)
 - Revolution Print & Packaging (2020) 
+
+## From GLAAD: 10 Ways to Be an Ally & a Friend
+
+- Be a listener.
+- Be open-minded.
+- Be willing to talk.
+- Be inclusive.
+- Don't assume that your friends and co-workers are straight. Someone close to you could be looking for support in their coming-out process. 
+- Anti-LGBT comments and jokes are harmful. Vocalize that you find them offensive.
+- Confront your own prejudices and bias, even if it is uncomfortable to do so.
+- Defend your LGBT friends against discrimination.
+- Believe that all people, regardless of gender identity and sexual orientation, should be treated with dignity and respect.
 
 
