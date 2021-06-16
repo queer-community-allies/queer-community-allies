@@ -26,8 +26,8 @@ Our EIN is `84-2519026`
 
 ## Volunteer board of directors 
 
-- We do the work! We meet, discuss, plan, coordinate, and visit. 
-- We vote on important decisions and maintain our bylaws. 
+- We do the work! Meet, discuss, plan, coordinate, & visit. 
+- We serve 1-year terms, vote on important decisions and maintain our bylaws. 
 - We currently have 5 board members with capacity for 10. 
 - Some of our board members hold an office (president, vice president, secretary, treasurer). We trade off other assignments (website, social media, visiting schools, digital accounts, GSA advisor contact, paperwork, etc) based on who has availability and interest in the moment. We're very collaborative! 
 - We meet at least every three months and often every month, hour tops. We also email and text each other. 
