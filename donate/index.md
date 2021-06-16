@@ -36,3 +36,30 @@ Our EIN is `84-2519026`
 - As we're a locally-focused organization, board members should live and/or work in our area pocket, Utah County or south Salt Lake County.  
  
 Interested? Email us! contact(at)queercommunityallies(org). 
+
+## 10 Ways to Be an Ally & a Friend (from GLAAD)  
+
+- Be a listener.
+- Be open-minded.
+- Be willing to talk.
+- Be inclusive.
+- Don't assume that your friends and co-workers are straight. Someone close to you could be looking for support in their coming-out process. 
+- Anti-LGBT comments and jokes are harmful. Vocalize that you find them offensive.
+- Confront your own prejudices and bias, even if it is uncomfortable to do so.
+- Defend your LGBT friends against discrimination.
+- Believe that all people, regardless of gender identity and sexual orientation, should be treated with dignity and respect.
+
+
+## A big thank you to local businesses that have supported Queer Community Allies & GSAs! 
+
+- Backyard Bookkeeper (2019)
+- Beans & Brews (2019)
+- Coffee Creations (2019)
+- Cravings Alisha's Cupcakes (2020)
+- Grinders Coffee House (2020) 
+- J Dawgs (2020)
+- MOD Pizza Saratoga Springs (2020)
+- Mojo Printing (2020)
+- Revolution Print & Packaging (2020) 
+
+
