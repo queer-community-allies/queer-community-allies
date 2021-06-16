@@ -40,7 +40,6 @@ title: Welcome
 - Revolution Print & Packaging (2020) 
 
 
-![this month's calendar](/files/calJune.jpg) 
 ![a pride community](/files/Prideflagslist.jpg)
 
 Logo design by Larissa Norman
