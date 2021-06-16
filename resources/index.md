@@ -1,6 +1,6 @@
 ---
 title: Resources
-menu-title: Resources
+menu-title: Resources List
 ---
 
 
