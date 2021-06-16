@@ -3,7 +3,9 @@ title: Events
 menu-title: Calendar
 ---
 
-June 26th @ 8pm *Equality Utah, Utah Pride Center, FAM Utah, and the Real Monarchs are partnering to honoring students and teachers working towards more inclusive schools!* We have some tickets to share for students and teachers! Reach out to us at contact(at)queercommunityallies(dot)org. Read more about Real Monarchs [theme nights here](https://www.rsl.com/monarchs/theme-nights).  
+June 26th @ 8pm Monarchs vs San Antonio 
+
+*Equality Utah, Utah Pride Center, FAM Utah, and the Real Monarchs are partnering to honoring students and teachers working towards more inclusive schools!* We have some FREE tickets to share for students and teachers! Reach out to us at contact(at)queercommunityallies(dot)org. Read more about Real Monarchs [theme nights here](https://www.rsl.com/monarchs/theme-nights) and [purchasing tickets here](https://www.rsl.com/monarchs/tickets/single). 
 
 ![monarchs pride night](/files/monarchpride.jpg)
 
