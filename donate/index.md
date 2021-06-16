@@ -1,6 +1,6 @@
 ---
-title: Donate
-menu-title: Donate
+title: How to help
+menu-title: How to help
 --- 
 
 There are multiple ways to donate to Queer Community Allies! Check out one of the links below. Our EIN is `84-2519026`
