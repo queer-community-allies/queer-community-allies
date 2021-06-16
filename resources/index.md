@@ -3,10 +3,25 @@ title: Resources
 menu-title: Resources List
 ---
 
-[link to further down](#️-teen--family-support-utsouthsl-counties)
-
-## For Local Teens, By Local Allies
+## For Local Teens, By Local Queers+Allies
 This list is for our local Utah County & south Salt Lake County LGBTQQIPPA+ teens and their families. This list is focused on local spots and support groups. We do supplement it with a limited number of virtually-access resources from across the US. See something you think we should add? Send us an email! contact(at)queercommunityallies(org) 
+
+[Virtual connections this summer](#virtual-connections-this-summer)
+[Online Glossaries of Queer Terms](#️-online-glossaries-of-queer-terms)
+Coming Out: Resources for Youth and Families 
+Virtual Spaces, Podcasts, & Information
+[Teen & Family Support (UT/southSL counties)](#️-teen--family-support-utsouthsl-counties)
+Health Providers & Therapists for Teens
+Workplaces for Teens
+Teams, Interest Groups & Hangout Spots
+Teen Volunteer Opportunities 
+Help for School Clubs
+Dating
+For Teachers
+Scholarships
+[Booklist - Teens + Kids]
+[Additional Utah Services & Organizations]
+
 
 ## Virtual connections this summer
   
@@ -173,5 +188,5 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 ## 🏳️‍🌈 [Booklist - Teens + Kids](/resources/booklist.html)
 
 
-## 🏳️‍🌈 [Additional Utah Services & Organizations ](/utsupportservices)
+## 🏳️‍🌈 [Additional Utah Services & Organizations](/utsupportservices)
 
