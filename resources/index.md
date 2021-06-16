@@ -3,6 +3,8 @@ title: Resources
 menu-title: Resources List
 ---
 
+## For Local Teens, By Local Allies
+This list is for our local Utah County & south Salt Lake County LGBTQQIPPA+ teens and their families. This list is focused on local spots and support groups. We do supplement it with a limited number of virtually-access resources from across the US. See something you think we should add? Send us an email! contact(at)queercommunityallies(org) 
 
 ## Virtual connections this summer
   
