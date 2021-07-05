@@ -35,7 +35,7 @@ Our EIN is `84-2519026`
 - All board members must be 18+ and able to pass a background check.
 - As we're a locally-focused organization, board members should live and/or work in our area pocket, Utah County or south Salt Lake County.  
  
-Interested? Email us! contact(at)queercommunityallies(org). 
+Interested? Email us! `contact@queercommunityallies.org`.
 
 
 ## A big thank you to local businesses that have supported Queer Community Allies & GSAs! 
