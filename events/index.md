@@ -7,7 +7,7 @@ We hope everyone had fun at the Monarchs game in June! Equality Utah, Utah Pride
 
 ![monarchs pride night](/files/monarchpride.jpg)
 
-Follow us on Instagram [@QueerCommunityAllies](https://www.instagram.com/queercommunityallies/) or [Facebook](https://www.facebook.com/QueerCommunityAllies) where we link to lots of virtual events! 
+Follow us on [Instagram](https://www.instagram.com/queercommunityallies/) or [Facebook](https://www.facebook.com/QueerCommunityAllies), @QueerCommunityAllies, where we link to lots of virtual events! 
 
 ![this month's calendar](/files/calJuly.jpg) 
 
