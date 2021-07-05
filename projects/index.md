@@ -5,7 +5,7 @@ menu-title: Projects
 
 ## Local GSA Support 
 
-We support GSAs (gay straight alliances/gender sexuality alliances; student-led with a teacher-staff-counselor advisor) in local high schools. Posters, stickers, flags, buttons, masks, wrapped snacks, books, funds for supplies, crafting items, board games, cards, guest visits from affirming adults, contacts from local businesses who can partner for donations... If they don't have the resources for success, we try to help. Reach out via email (`contact@queercommunityallies.org`) or our social media pages @QueerCommunityAllies if you want to get involved, or if you are part of a local GSA looking for help. #AdoptaGSA 
+We support GSAs (gay straight alliances/gender sexuality alliances; student-led with a teacher-staff-counselor advisor) in local high schools. Posters, stickers, flags, buttons, masks, wrapped snacks, books, funds for supplies, crafting items, board games, cards, guest visits from affirming adults, contacts from local businesses who can partner for donations... If they don't have the resources for success, we try to help. Reach out via email (`contact@queercommunityallies.org`) or our social media pages [@QueerCommunityAllies](https://queercommunityallies.org/social/) if you want to get involved, or if you are part of a local GSA looking for help. #AdoptaGSA 
 
 ## Classroom Decor & Educator Supplies
 
