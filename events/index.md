@@ -3,7 +3,7 @@ title: Events
 menu-title: Calendar
 ---
 
-We hope everyone had fun at the Monarchs game in June! *Equality Utah, Utah Pride Center, FAM Utah, Queer Community Allies and the Real Monarchs partnered to honor students and teachers working towards more inclusive schools!* [Utah Pride Center also put on some fab Pride events!](https://utahpridecenter.org/pride-and-center/pride-week-2021/) 
+We hope everyone had fun at the Monarchs game in June! Equality Utah, Utah Pride Center, FAM Utah, Queer Community Allies and the Real Monarchs partnered to honor students and teachers working towards more inclusive schools! [Utah Pride Center also put on some fab Pride events!](https://utahpridecenter.org/pride-and-center/pride-week-2021/) 
 
 ![monarchs pride night](/files/monarchpride.jpg)
 
