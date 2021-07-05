@@ -5,7 +5,7 @@ menu-title: About
 
 Welcome to Queer Community Allies! We are a unique 501(c)(3) organization that serves queer teens in collaboration with the local community. Nestled between Salt Lake City and Provo in north Utah County, we find groups for and led by queer teens and provide tangible and emotional support. We raise money to purchase supplies for their projects, clubs, and organizations. We partner with local businesses and allies. We use our connections and funds to provide social events, share resources to educate the local populace on queer terminology and queer life, and go to local community events to raise acceptance of our community's queer young people. We also share local resources through our website for queer teens and their families.  
 
-In order to get in contact with Queer Community Allies, please email: contact (at) queercommunityallies (dot) org. You can also message us through our [social media pages](/social).
+In order to get in contact with Queer Community Allies, please email: contact@queercommunityallies.org. You can also message us through our [social media pages](/social).
 
 We are often asked why start an organization at all, when Salt Lake City and Provo offer so many wonderful resources. That is exactly why we started - because for many families we've met, driving to SLC or Provo is unfeasible due to mileage, lack of public transport, and/or time. It is even more unfeasible for youth living in unaffirming homes. We wanted a mobile organization that could reach these teens and families from Eagle Mountain to Cedar Hills. 
 
