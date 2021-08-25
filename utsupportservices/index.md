@@ -29,7 +29,7 @@ Trans Services
 MORE! 
 - [FAM Utah Educators for LGBTQ-Inclusive Schools](https://utahfam.org) 
 - [The OUT Foundation](https://www.theout.foundation), empowering LGBTQ+ BYU alumni & current students 
-- [Project Rainbow](https://www.facebook.com/projectrainbowutah/?hc_location=ufi) 
+- [Project Rainbow](https://www.projectrainbowutah.org) 
 - [QUAC - Queer Utah Aquatic Club](https://www.quacquac.org) 
 - [Rainbow Law, LGBT + Allied Lawyers of Utah](http://www.lgbtutahlawyers.com/directory)
 - Spectrum: QSA at UVU
