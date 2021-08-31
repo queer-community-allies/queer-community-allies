@@ -11,9 +11,12 @@ To GSA student leaders and advisors, message us if you'd like any of the followi
 
 - {Game Library} We loan out games for 2 months at a time. You can reserve them ahead of time. Please take the best care of them you can so we can pass them along to other GSAs after you. 
 - {Button Maker Library} A wonderful community member donated a pin-back button maker! We are available to bring it by to a meeting with ~50 blank buttons (about an hour of use). 
-- Care package. It will have a mix of swag, snacks, flags, or stickers. Right now we have special book bags from FAM Utah! Book bundles include: If You Could Be Mine (Farizan), Simon vs The Homosapien Agenda (Albertalli), Felix Ever After (Callender), Dreadnought (Daniels). 
+- Care package. It will have a mix of swag, snacks, flags, or stickers. Right now we have special book bags from FAM Utah! Book bundles include: If You Could Be Mine (Farizan), Simon vs The Homosapien Agenda (Albertalli), Felix Ever After (Callender), Dreadnought (Daniels). We also have ONE coloring book. 
 - Laminated small signs from SafeSpaceUT. A rainbow-colored circle with text 'You are safe welcome valued heard wanted respected here' on one side and letter from Utah State Board of Education on the other side 'RE: Clarification of Recent Changes to R277-474-3, School Instruction and Human Sexuality, General Provisions.'
 - An idea of your own! We've had GSAs request Halloween craft supplies, soda & snacks, and display items for school events. We want to be here to support YOUR goals, projects, and dreams!  
+
+![current swag closet](/files/swagclosetcurrent.jpg) 
+
 
 ## Classroom Decor & Educator Supplies
 
