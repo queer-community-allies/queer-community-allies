@@ -3,7 +3,7 @@ title: Welcome
 --- 
 
 ## Adopt a GSA
-This fall, one of the biggest things you can do to support local teens is take action! Reach out to your local high school and ask a counselor or administrator: "How can I contact the school GSA (Gay Straight Alliance) advisor?" A GSA advisor is a teacher, staff member, or counselor who supports the GSA President and often hosts meetings in their/her/his classroom. Get to know the advisor, offer to bring treats once a month, offer to donate some games or craft supplies for their club. Get more [ideas and suggestions](/resources/#️-help-for-school-clubs) on our Resources page! #AdoptaGSA
+This fall, one of the biggest things you can do to support local teens is reach out to your local high school and ask a counselor or administrator: "How can I contact the school GSA (Gay Straight Alliance) advisor?" A GSA advisor is a teacher, staff member, or counselor who supports the GSA President and often hosts meetings in their/her/his classroom. Get to know the advisor, offer to bring treats once a month, offer to donate some games or craft supplies for their club. Get more [ideas and suggestions](/resources/#️-help-for-school-clubs) on our Resources page! #AdoptaGSA
 
 For our clubs -- check out our [projects page](/projects/# -local-gsa-support) to see what we have available right now! 
 
