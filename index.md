@@ -2,16 +2,6 @@
 title: Welcome
 --- 
 
-## We need help! 
-
-We need 5 more board members! What does a board member do? 
-
-- 1-hour meet every couple months + ongoing virtual contact 
-- Volunteer their time, energy, and enthusiasm
-- Locals (18+) with a desire to help
-
-[Email](mailto:contact@queercommunityallies.org) us if you're interested! [Learn more](/donate/#volunteer-board-of-directors). 
-
 ## Adopt a GSA
 This fall, one of the biggest things you can do to support local teens is take action! Reach out to your local high school and ask a counselor or administrator: "How can I contact the school GSA (Gay Straight Alliance) advisor?" A GSA advisor is a teacher, staff member, or counselor who supports the GSA President and often hosts meetings in their/her/his classroom. Get to know the advisor, offer to bring treats once a month, offer to donate some games or craft supplies for their club. Get more [ideas and suggestions](/resources/#️-help-for-school-clubs) on our Resources page! #AdoptaGSA
 
@@ -26,11 +16,24 @@ For our clubs -- check out our [projects page](/projects/# -local-gsa-support) t
 
 Other help? Domestic? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
 
-- - [Utah Covid-19 pandemic support](https://coronavirus.utah.gov)
+- [Utah Covid-19 pandemic support](https://coronavirus.utah.gov)
 - [SafeUT](https://safeut.med.utah.edu) 
 - [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention)
 
 ## Pride Flags 
 ![a pride community](/files/Prideflagslist.jpg)
+
+## September Calendar
+![rainbow calendar](/files/CalSept.jpg)
+
+## Want to help? 
+
+We need 5 more board members! What does a board member do? 
+
+- 1-hour meet every couple months + ongoing virtual contact 
+- Volunteer their time, energy, and enthusiasm
+- Locals (18+) with a desire to help
+
+[Email](mailto:contact@queercommunityallies.org) us if you're interested! [Learn more](/donate/#volunteer-board-of-directors). 
 
 Logo design by Larissa Norman
