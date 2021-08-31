@@ -24,8 +24,6 @@ Other help? Domestic? Housing? Legal? Food? One place to start is [Utah211](http
 ![a pride community](/files/Prideflagslist.jpg)
 
 
-![rainbow calendar](/files/calSept.jpg)
-
 ## Want to help? 
 
 We need 5 more board members! What does a board member do? 
