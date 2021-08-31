@@ -20,11 +20,11 @@ Other help? Domestic? Housing? Legal? Food? One place to start is [Utah211](http
 - [SafeUT](https://safeut.med.utah.edu) 
 - [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention)
 
-## Pride Flags 
+
 ![a pride community](/files/Prideflagslist.jpg)
 
-## September Calendar
-![rainbow calendar](/files/CalSept.jpg)
+
+![rainbow calendar](/files/calSept.jpg)
 
 ## Want to help? 
 
