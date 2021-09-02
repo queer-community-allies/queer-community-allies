@@ -55,6 +55,7 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 - [Family Acceptance Project](https://familyproject.sfsu.edu) at San Francisco State University 
 - [Our Children: Questions and Answers for Families of Lesbian, Gay, Bisexual, Transgender, Gender-Expansive and Queer Youth and Adults](https://pflag.org/resource/our-children), from PFLAG 
 - [Parents and Family](https://www.genderspectrum.org/audiences/parents-and-family) by Gender Spectrum 
+- [Youth Laws (equality)](https://www.equalityutah.org/youth-laws) via Equality Utah, from the State Equality Index and compiled by the Human Rights Campaign Foundation and the Equality Federation Institute
 
 
 ## 🏳️‍🌈 Virtual Spaces, Podcasts, & Information 
