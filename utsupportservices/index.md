@@ -5,6 +5,7 @@ title: Utah Support & Services
 
 ## 🏳️‍🌈 More Teen & Family Support 
 
+- A [list of safezone resources](https://www.utahlgbtqchamber.org/lgbtq-safezone-resources/) compiled by the Utah LBGTQ Chamber of Commerce 
 - [Affirmation: LGBTQ Mormons, Families & Friends](https://affirmation.org)
 - [Encircle](https://encircletogether.org) (SLC & St. George) 
 - [Peculiar](https://www.thepeculiar.org), inspiring parents to unconditionally love their LGBTQ+ children 
