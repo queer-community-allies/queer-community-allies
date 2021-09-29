@@ -15,7 +15,7 @@ Shop our Amazon Smile [charity wishlist](https://smile.amazon.com/hz/charitylist
 
 Donate via DonorBox, PayPal, or Venmo. 
 
-- <a target="_blank" href="https://donorbox.org/queer-community-allies-donations"><img src="https://d1iczxrky3cnb2.cloudfront.net/button-medium-blue.png" /></a>
+- [Become a monthly donor!](<a target="_blank" href="https://donorbox.org/queer-community-allies-donations"><img src="https://d1iczxrky3cnb2.cloudfront.net/button-medium-blue.png" /></a>)
 - [Donate via PayPal](/donate/paypal)
 - [Donate via Venmo](/donate/venmo)
 
