@@ -7,15 +7,15 @@ There are multiple ways to help!
   
 ## Donate money
 
-Shop our Amazon Smile [charity wishlist](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)! All items will go into care packages for local GSAs!
-
-Donate via DonorBox, PayPal, or Venmo. 
+Donate directly:  
 
 - [One-time or recurring donations through DonorBox!](https://donorbox.org/queer-community-allies) 
 
 <a target="_blank" href="https://donorbox.org/queer-community-allies"><img src="https://donorbox.org/images/png-donate/button-medium-blue.png" /></a>
 - [One-time donations via PayPal](/donate/paypal)
 - [One-time donations via Venmo](/donate/venmo)
+
+Shop our Amazon Smile [charity wishlist](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)! All items will go into care packages for local GSAs!
 
 Shop our [QueerCommunityAllies Zazzle swag](https://www.zazzle.com/store/queercommunityallies)! 
 
