@@ -36,7 +36,7 @@ Interested? [Email](mailto:contact@queercommunityallies.org) us! (contact@queerc
 
 ## #AdoptaGSA 
 
-A HUGE way you can help change our communities to be safer places is to support YOUR local high school GSA. A GSA (gay-straight alliance) is an extracurricular club supported by a high school teacher, counselor, or staff member and led by high school students. They get together regularly to socialize, play games, learn new skills, or do service projects. Call your local high school & ask them to put you in touch with their GSA advisor. Some information about local GSAs is included [here](️resources/gsas).
+A HUGE way you can help change our communities to be safer places is to support YOUR local high school GSA. A GSA (gay-straight alliance) is an extracurricular club supported by a high school teacher, counselor, or staff member and led by high school students. They get together regularly to socialize, play games, learn new skills, or do service projects. Call your local high school & ask them to put you in touch with their GSA advisor. Some information about local GSAs is included [on our GSA listing page](️resources/gsas.html).
 
 ## A big thank you to local businesses that have supported Queer Community Allies & GSAs! 
 
