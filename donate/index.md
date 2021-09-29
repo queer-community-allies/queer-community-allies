@@ -4,10 +4,6 @@ menu-title: How to Help
 --- 
 
 There are multiple ways to help! 
- 
- - donate money 
- - join our volunteer board of directors
- - reach out to YOUR local high school & ask them to put you in touch with their GSA advisor #AdoptaGSA 
   
 ## Donate money
 
