@@ -2,8 +2,6 @@
 title: How to help
 menu-title: How to Help
 --- 
-
-There are multiple ways to help! 
   
 ## Donate money
 
