@@ -13,9 +13,7 @@ Donate directly:
 - [One-time donations via PayPal](/donate/paypal)
 - [One-time donations via Venmo](/donate/venmo)
 
-Shop our Amazon Smile [charity wishlist](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)! All items will go into care packages for local GSAs!
-
-We also have a [Zazzle shop](https://www.zazzle.com/store/queercommunityallies). Purchase something with our logo, and we get some of the proceeds. 
+Shop our Amazon Smile [charity wishlist](https://smile.amazon.com/hz/charitylist/ls/MX3B3PFF8BI8/ref=smi_ext_lnk_lcl_cl)! All items will go into care packages for local GSAs! We also have a [Zazzle shop](https://www.zazzle.com/store/queercommunityallies); purchase something with our logo, and we get some of the proceeds. 
 
 Our EIN is `84-2519026`
 
