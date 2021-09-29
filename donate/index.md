@@ -15,7 +15,7 @@ Shop our Amazon Smile [charity wishlist](https://smile.amazon.com/hz/charitylist
 
 Donate via DonorBox, PayPal, or Venmo. 
 
-- One-time or recurring donations through DonorBox! --> <a target="_blank" href="https://donorbox.org/queer-community-allies-donations"><img src="https://d1iczxrky3cnb2.cloudfront.net/button-medium-blue.png" /></a>  
+- [One-time or recurring donations through DonorBox!](https://donorbox.org/queer-community-allies) <a target="_blank" href="https://donorbox.org/queer-community-allies"><img src="https://donorbox.org/images/png-donate/button-medium-blue.png" /></a>
 - [One-time donations via PayPal](/donate/paypal)
 - [One-time donations via Venmo](/donate/venmo)
 
