@@ -97,11 +97,14 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 ## 🏳️‍🌈 Health Providers & Therapists for Teens
 
 - [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
+- [Celebrate Therapy(Provo)](https://www.celebratetherapy.org)
+- [Expressions Counseling Center (Lehi)](https://expressionscounselingcenter.com)
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
 - [Healing Steps Counseling (Lehi)](http://www.healingstepsutah.com/)
 - [LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html), Utah-wide directory searchable by location, services, & insurance 
-- [Rebirth OBGYN, Transgender Health](https://www.rebirthobgyn.com/services/transgender-health) (Salt Lake City) 
-- [University of Utah Transgender Health Program](http://healthcare.utah.edu/transgender-health) (Salt Lake City)
+- [Mindful Counseling (Provo)](https://mindfulcounselingutah.com)
+- [Rebirth OBGYN, Transgender Health (SLC)](https://www.rebirthobgyn.com/services/transgender-health) 
+- [University of Utah Transgender Health Program (SLC)](http://healthcare.utah.edu/transgender-health) 
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
 - TrevorText, text START to 678678 (confidential text message with a counselor through The Trevor Project)
 
