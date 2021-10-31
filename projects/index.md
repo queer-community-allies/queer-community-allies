@@ -18,7 +18,6 @@ We support GSAs (gay straight alliances/gender sexuality alliances; student-led 
 
 ![current swag closet](/files/swagclosetcurrent.jpg) 
 
-
 ## Classroom Decor & Educator Supplies
 
 Teachers often ask us for buttons to distribute to faculty-friends and students and for posters, stickers and flags for their classrooms. If you're a teacher who would like some items, reach out! We'd be happy to gift you some! 
