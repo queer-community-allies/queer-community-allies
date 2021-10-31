@@ -8,13 +8,13 @@ menu-title: Projects
 We support GSAs (gay straight alliances/gender sexuality alliances; student-led with a teacher-staff-counselor advisor) in local high schools. Reach out via [email](mailto:contact@queercommunityallies.org) or our social media pages [@QueerCommunityAllies](https://queercommunityallies.org/social/) if you are part of a local GSA looking for help. #AdoptaGSA 
 
 - {Game Library} We loan out games for 2 months at a time. You can reserve them ahead of time. Please take the best care of them you can so we can pass them along to other GSAs after you. * Wizard School * Scooby Doo Clue * Encore * Oregon Trail * Legends of the Hidden Temple (Nickelodeon) * Malarky * Cranium * Cranium Turbo Edition 
-- {Button Maker Library} A wonderful community member donated a pin-back button maker! Reach out, send us a design, and we can drop off up to 50 completed buttons * We used to visit schools and let you do the process, but we are stretched thin with volunteers right now. 
+- {Book Library} FAM Utah gave us a bunch of books to share! (high school grade level titles) * If You Could Be Mine (Farizan) * Simon vs The Homosapien Agenda (Albertalli) * Felix Ever After (Callender) * Dreadnought (Daniels) * a rainbow coloring book
+- {Button Maker} A wonderful community member donated a pin-back button maker! Reach out, send us a design, and we can drop off up to 50 completed buttons *We used to visit schools and let you do the process, but we are stretched thin with volunteers right now. 
 - Care package. It will have a mix of snacks, flags, buttons, face masks, or stickers  
-- Book bundles from FAM Utah! (high school grade level titles) * If You Could Be Mine (Farizan) * Simon vs The Homosapien Agenda (Albertalli) * Felix Ever After (Callender) * Dreadnought (Daniels) * a rainbow coloring book
 - Laminated small signs from SafeSpaceUT. A rainbow-colored circle with text 'You are safe welcome valued heard wanted respected here' on one side and letter from Utah State Board of Education on the other side 'RE: Clarification of Recent Changes to R277-474-3, School Instruction and Human Sexuality, General Provisions.'
 - Names of local businesses that we know are affirming who might be interested in sponsoring your GSA on an ongoing basis
 - Guest visits from local affirming adults 
-- An idea of your own! We've had GSAs request Halloween craft supplies, soda & snacks, and display flags for school events. We want to be here to support YOUR goals, projects, and designs!  
+- An idea of your own! We've had GSAs request Halloween craft supplies, soda & snacks, display flags for school events... 
 
 ![current swag closet](/files/swagclosetcurrent.jpg) 
 
