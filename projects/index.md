@@ -20,7 +20,7 @@ We support GSAs (gay straight alliances/gender sexuality alliances; student-led 
 
 ## Classroom Decor & Educator Supplies
 
-Teachers often ask us for buttons to distribute to faculty-friends and students and for posters, stickers and flags for their classrooms. If you're a teacher who would like some items, reach out! We'd be happy to gift you some! 
+Teachers ask us for buttons to have available for faculty, friends and students and ask for posters, stickers and flags for their classrooms. If you're a teacher who would like some items, reach out! We'd be happy to gift you some! 
 
 Community ally with a favorite teacher friend? Consider purchasing some swag from our online shop [QueerCommunityAllies at Zazzle.com](https://www.zazzle.com/store/queercommunityallies) as a back-to-school gift. 
 
@@ -32,8 +32,12 @@ We love going to Pride, joining other organizations at various city community ni
 
 ## Community Swag
 
-We love sharing swag from our neighbor organizations! Thank you Pride Center, HRC Utah, Equality Utah, and Encircle for giving us calendars, chapstick, stickers, pamphlets, flags, glow bracelets, and more to distribute to our teens and at local events. We love seeing rainbow swag around town, from any group! Check out our Queer Community Allies swag collection at [QueerCommunityAllies at Zazzle.com](https://www.zazzle.com/store/queercommunityallies).
+We love sharing swag from our neighbor organizations! Thank you Pride Center, HRC Utah, Equality Utah, and Encircle for giving us calendars, chapstick, stickers, pamphlets, flags, glow bracelets, and more to distribute to our teens and at local events. We love seeing rainbow swag around town!
 
 ## Dream Project: GSA Meet
  
-We started planning a GSA meet for clubs across Utah County to meet, talk, make friends, and share ideas. It was scheduled to happen in April 2020. Due to the spread of COVID-19 and school closures, the event was cancelled. We look forward to this event happening in the future, when it is safe to do so. Regardless, we thank administration at Mountain View for being supportive of hosting the meet, Cravings Alisha's Cupcakes for being willing to give a discount code to anyone who wanted to buy & donate a dozen cupcakes to the event, Flourish Therapy for being willing to donate an activity, and Mama Dragons for being willing to host a booth with info for any parents who wanted to visit!  
+We started planning a GSA meet for clubs across Utah County to meet, talk, make friends, and share ideas in spring 2020. Due to the spread of COVID-19 and school closures, the event was cancelled. (We thank administration at Mountain View for being supportive of hosting, Cravings Alisha's Cupcakes for being willing to give a discount code to anyone who wanted to buy & donate cupcakes to the event, Flourish Therapy for being willing to donate an activity, and Mama Dragons for being willing to host a booth for any attending parents.)
+
+Timpview GSA teen leaders organized and hosted an inter-GSA meet in spring 2021! They did an amazing job! We were so happy to support by providing dinner for everyone there. 
+
+We would always like to be able to support inter-GSA networking and socializing. It's our goal to always have funding to help these events along. 
