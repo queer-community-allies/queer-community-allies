@@ -194,3 +194,5 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 
 ## 🏳️‍🌈 [Additional Utah Services & Organizations](/utsupportservices)
 
+## 🏳️‍🌈 Voting 
+In Utah County, 16 and 17 year olds may pre-register to vote and will be automatically sent a ballot when they're eligible to vote (age 18). Find more information at the [Utah County Election Division's website](https://www.utahcounty.gov/dept/clerkaud/elections/Index.html) or at the [Salt Lake County Election's website](https://slco.org/clerk/elections/). 
