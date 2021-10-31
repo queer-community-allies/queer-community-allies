@@ -34,10 +34,10 @@ We love going to Pride, joining other organizations at various city community ni
 
 We love sharing swag from our neighbor organizations! Thank you Pride Center, HRC Utah, Equality Utah, and Encircle for giving us calendars, chapstick, stickers, pamphlets, flags, glow bracelets, and more to distribute to our teens and at local events. We love seeing rainbow swag around town!
 
-## Dream Project: GSA Meet
- 
-We started planning a GSA meet for clubs across Utah County to meet, talk, make friends, and share ideas in spring 2020. Due to the spread of COVID-19 and school closures, the event was cancelled. (We thank administration at Mountain View for being supportive of hosting, Cravings Alisha's Cupcakes for being willing to give a discount code to anyone who wanted to buy & donate cupcakes to the event, Flourish Therapy for being willing to donate an activity, and Mama Dragons for being willing to host a booth for any attending parents.)
+## GSA Meets
 
 Timpview GSA teen leaders organized and hosted an inter-GSA meet in spring 2021! They did an amazing job! We were so happy to support by providing dinner for everyone there. 
 
-We would always like to be able to support inter-GSA networking and socializing. It's our goal to always have funding to help these events along. 
+Queer Community Allies began planning an inter-GSA event in spring 2020 for local teens to meet, make new friends, and collaborate. Due to the spread of COVID-19 and school closures, the event was cancelled. We thank administration at Mountain View for being supportive of hosting, Cravings Alisha's Cupcakes for offering donation discount codes, Flourish Therapy for offering an activity, and Mama Dragons for being willing to provide a parent booth. 
+
+We are committed to supporting inter-GSA networking and socializing. It's our goal to always have funding to help these events along. 
