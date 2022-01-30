@@ -3,8 +3,6 @@ title: Events
 menu-title: Calendar
 ---
 
-![this month's calendar](/files/calJan.jpg) 
-
 
 Follow us on [Instagram](https://www.instagram.com/queercommunityallies/) or [Facebook](https://www.facebook.com/QueerCommunityAllies), @QueerCommunityAllies, where we share links to upcoming local events. 
 
