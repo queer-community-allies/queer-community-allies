@@ -142,10 +142,13 @@ List under construction...
 - [GSA Network ~ How to get more members & allies](https://gsanetwork.org/resources/how-to-get-more-members-allies/)
 - [GLSEN ~ Know Your Rights](https://www.glsen.org/knowyourrights)
 - [GSA Network ~ Fundraising for your GSA](https://gsanetwork.org/resources/fundraising-for-your-gsa/)
+- [Ok2bme ideas for GSA activities](https://ok2bme.ca/11-things-your-schools-gsa-can-do/)
+
+Reach out to your parents' friends, your neighbors' friends, or your friends' parents and see if someone would be willing to bring snacks to your club meeting once a month! Or drop off a game to play! Figure out who your resources are and start there. 
+
+[Register your GSA with GLSEN for access to free supplies!](https://www.studentorganizing.org) 
 
 [Join the National GSA Leadership Coalition(GLSEN)](https://act.glsen.org/a/national-gsa-leadership-coalition)
-
-[Register your GSA with GLSEN for access to their support!](https://www.studentorganizing.org) 
 
 
 ## 🏳️‍🌈 Dating 
