@@ -87,7 +87,7 @@ If you or someone you know is in crisis call the National Suicide Prevention Lif
 
 - [Encircle (Provo)](www.EncircleTogether.org)  
 - [Dragon Dads](https://www.facebook.com/DragonDads/)  
-- [Gender Bands (Orem)](https://www.genderbands.org)  
+- [Genderbands (Orem)](https://www.genderbands.org)  
 - [Mama Dragons](https://mamadragons.org) 
 - [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
 - [Queer Meals (Provo)](http://queermeals.com)  
