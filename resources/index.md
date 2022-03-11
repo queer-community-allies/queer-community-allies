@@ -38,7 +38,7 @@ Local: within Alpine, Provo, and Jordan school districts. (Cities: Alpine, Ameri
 - [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)  
 - [GLBT National Youth Talkline](https://www.glbtonline.org)   
 - [QChat Space](https://www.lgbtcenters.org/Q-Chat-Space) 
-- TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
+- [Trevor Project, Utah](www.facebook.com/utahtrevorproject) and TrevorText a confidential text message with a Trevor counselor - text START to 678678 
 - [SafeUT](https://safeut.med.utah.edu)
 - Other help? One place to start is [Utah211](https://211utah.org). 
 - Concerned about someone in crisis? [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention) 
