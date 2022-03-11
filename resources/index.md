@@ -81,7 +81,7 @@ List under construction...
 ## 🏳️‍🌈 Health Providers & Therapists for Teens
 
 - [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
-- [Celebrate Therapy(Provo)](https://www.celebratetherapy.org)
+- [Celebrate Therapy (Provo)](https://www.celebratetherapy.org)
 - [Expressions Counseling Center (Lehi)](https://expressionscounselingcenter.com)
 - [Family Solutions Counseling](https://www.familysolutionsutah.org) 
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
@@ -89,9 +89,9 @@ List under construction...
 - [LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html), Utah-wide directory searchable by location, services, & insurance 
 - [Mindful Counseling (Provo)](https://mindfulcounselingutah.com)
 - [Rebirth OBGYN, Transgender Health (SLC)](https://www.rebirthobgyn.com/services/transgender-health) 
+- TrevorText, text START to 678678 (confidential text message with a counselor through The Trevor Project)
 - [University of Utah Transgender Health Program (SLC)](http://healthcare.utah.edu/transgender-health) 
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
-- TrevorText, text START to 678678 (confidential text message with a counselor through The Trevor Project)
 
 
 ## 🏳️‍🌈 Help for School Clubs
