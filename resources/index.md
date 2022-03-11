@@ -50,6 +50,7 @@ A few more:
 ## 🏳️‍🌈 Local Teen & Family Support
 Due to the global COVID pandemic, all current local support has paused or moved online. 
 
+- [Rainbow Mutual](https://www.facebook.com/RainbowMutual/)   
 - [Encircle (SLC, Provo) currently all virutal](www.EncircleTogether.org) 
 - [Pride Center Youth (SLC) currently all virtual](https://utahpridecenter.org/youth-programs/) 
 
@@ -60,9 +61,9 @@ Due to the global COVID pandemic, all current local support has paused or moved 
 ## 🏳️‍🌈 Teams, Interest Groups & Hangout Spots  
 
 List under construction... 
-- [Rainbow Mutual](http://www.rainbowmutual.org)   
-- MOD Pizza (Saratoga Springs) 
 - [Third Space Studios (Provo)](https://www.facebook.com/thirdspaceprovo/) 
+- [QUAC - Queer Utah Aquatic Club (SLC)](https://www.quacquac.org) 
+- [Stonewall Sports (SLC)](http://www.stonewallsportsslc.org) 
 
 
 ## 🏳️‍🌈 Workplaces for Teens
