@@ -18,13 +18,13 @@ Our 2020-2021 Board
 - Sarah DeLong (she/her/hers or they/them/theirs)
 - Dave DeLong (he/him/his)
 
-Contact us if you want to get involved! We are currently a tiny organization with limited volunteer opportunities aside from joining the board to organize efforts. Due to the COVID-19 epidemic, our service opportunities are even more limited. We welcome adults 18+ who can pass a background check and who are creative and willing to devote a few hours each month. We have existed for almost two years and to date have raised almost $4,000 in donations. 
+Contact us if you want to get involved! We are currently a tiny organization with limited volunteer opportunities aside from joining the board to organize efforts. Due to the COVID-19 epidemic, our service opportunities are even more limited. We welcome adults 18+ who can pass a background check and who are creative and willing to devote a few hours each month. We have existed for almost three years and to date have raised almost $6,000 in donations. 
 
 
 
-> My goal for this organization is to create a safe space for all Queer teens within their own communities. I want to get local resources working together as a united front so that these kids can leave their homes knowing people care and will protect them. I also want to identify where additional resources are needed and provide them. My dream is to have a space where teens can come hang out, do homework, get therapy and just be kids. I want to create that space so that all teens can have normal childhood experiences. We’ll have a pool so trans kids can swim and be themselves SAFELY! That is my dream. ~Christine 
+> My goal for this organization is to create a safe space for all Queer teens within their own communities. I want to get local resources working together as a united front so that these kids can leave their homes knowing people care and will protect them. I also want to identify where additional resources are needed and provide them. My dream is to have a space where teens can come hang out, do homework, get therapy and just be kids. I want to create that space so that all teens can have normal childhood experiences. We’ll have a pool so trans kids can swim and be themselves SAFELY! That is my dream. ~Christine, current president, co-founder 
 
-> My goal for the next few years is to build up a local network for and with local teens that helps them feel loved, involved, connected, and confident. Hopefully these efforts will, in turn, lower suicidal thoughts, attempts, and completions among all teen demographics in this area as well as alleviate queer teen dislocation, homelessness, and peer/family rejection. There is so much to be done, and I'm excited to WORK! ~Sarah 
+> My goal for the next few years is to build up a local network for and with local teens that helps them feel loved, involved, connected, and confident. Hopefully these efforts will, in turn, lower suicidal thoughts, attempts, and completions among all teen demographics in this area as well as alleviate queer teen dislocation, homelessness, and peer/family rejection. There is so much to be done, and I'm excited to WORK! ~Sarah, co-founder 
 
 From our Articles of Incorporation:
 
