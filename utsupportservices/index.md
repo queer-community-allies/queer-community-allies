@@ -5,12 +5,16 @@ title: Utah Support & Services
 
 ## 🏳️‍🌈 More Teen & Family Support 
 
-- A [list of safezone resources](https://www.utahlgbtqchamber.org/lgbtq-safezone-resources/) compiled by the Utah LBGTQ Chamber of Commerce 
 - [Affirmation: LGBTQ Mormons, Families & Friends](https://affirmation.org)
-- [Encircle](https://encircletogether.org) (SLC & St. George) 
-- [Peculiar](https://www.thepeculiar.org), inspiring parents to unconditionally love their LGBTQ+ children 
-- [Utah Pride Center](https://utahpridecenter.org)
+- [Dragon Dads](https://www.facebook.com/DragonDads/)  
+- [Genderbands (Orem)](https://www.genderbands.org)  
+- [Peculiar](https://www.thepeculiar.org) (Davis County/north Utah) 
+- [Mama Dragons](https://mamadragons.org) 
+- [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
+- [Queer Meals (Provo)](http://queermeals.com)  
 - [Youth Futures](https://www.youthfuturesutah.org) (Ogden & St. George), home for vulnerable and homeless youth 
+- [Utah LGBTQ Chamber of Commerce list of safezone resources](https://www.utahlgbtqchamber.org/lgbtq-safezone-resources/) 
+
 
 ## 🏳️‍🌈 Additional Utah Services & Organizations  
 
