@@ -48,11 +48,12 @@ A few more:
 
  
 ## 🏳️‍🌈 Local Teen & Family Support
-Due to the global COVID pandemic, all current local support has paused or moved online. 
+Due to the global COVID pandemic, most current local support has paused or moved online. 
 
 - [Rainbow Mutual](https://www.facebook.com/RainbowMutual/)   
 - [Encircle (SLC, Provo) currently all virutal](www.EncircleTogether.org) 
 - [Pride Center Youth (SLC) currently all virtual](https://utahpridecenter.org/youth-programs/) 
+- [high school GSAs (gay straight alliances)](️-help-for-school-clubs)
 
 
 ## 🏳️‍🌈 [Additional Utah Services & Organizations](/utsupportservices)
