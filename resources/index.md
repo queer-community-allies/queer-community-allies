@@ -21,7 +21,7 @@ This list is for our local Utah County & south Salt Lake County LGBTQQIPPA+ teen
 - [Scholarships](#️-scholarships)
 - [Booklist - Teens + Kids](#️-booklist---teens--kids)
 - [Additional Utah Services & Organizations](#️-additional-utah-services--organizations)
-- Voting
+- [Voting](#️-voting)
 
 
 ## Virtual connections
