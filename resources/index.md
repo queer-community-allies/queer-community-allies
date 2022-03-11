@@ -32,13 +32,14 @@ This list is for our local Utah County & south Salt Lake County LGBTQQIPPA+ teen
 
 ## Virtual community
   
+- [Utah Pride Center Youth](https://utahpridecenter.org/youth-programs/) 
+- [Encircle](https://encircletogether.org/online)
+- [HRC Direct Online and Phone Support Services for LGBTQ Youth](https://www.hrc.org/resources/direct-online-and-phone-support-services-for-lgbtq-youth) 
 - [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)! Teens (ages 13-19), Black Trans and Non-Binary Teen Group, Pre-Teens (ages 10-12), National Parent Support Group, and [so many more](https://www.genderspectrum.org/articles/blog-covid-resources). 
 - [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
 - [QChat Space](https://www.lgbtcenters.org/Q-Chat-Space), live, chat-based, professionally facilitated, online support and discussion groups for LGBTQ+ teens 13-19
-- [Utah Pride Center Youth](https://utahpridecenter.org/youth-programs/) is currently all virtual. 
-- [Encircle](https://encircletogether.org/online) is still online  
 
-A few more resources: 
+A few more: 
 - TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
 - [SafeUT](https://safeut.med.utah.edu)
 - Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
@@ -49,8 +50,8 @@ A few more resources:
 ## 🏳️‍🌈 Local Teen & Family Support
 Due to the global COVID pandemic, all current local support has paused or moved online. 
 
-- [Encircle (SLC, Provo)](www.EncircleTogether.org) 
-- [Pride Center Youth (SLC)](https://utahpridecenter.org/youth-programs/) 
+- [Encircle (SLC, Provo) currently all virutal](www.EncircleTogether.org) 
+- [Pride Center Youth (SLC) currently all virtual](https://utahpridecenter.org/youth-programs/) 
 
 
 ## 🏳️‍🌈 [Additional Utah Services & Organizations](/utsupportservices)
