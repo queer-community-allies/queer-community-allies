@@ -37,14 +37,15 @@ A HUGE way you can help change our communities to be safer places is to support 
 ## A big thank you to local businesses that have supported Queer Community Allies! 
 
 - Backyard Bookkeeper (2019)
-- Beans & Brews (2019)
+- Beans & Brews (2019, 2021)
 - Coffee Creations (2019)
 - Cravings Alisha's Cupcakes (2020)
 - Grinders Coffee House (2020) 
-- J Dawgs (2020)
+- J Dawgs (2020, 2021)
 - MOD Pizza Saratoga Springs (2020)
-- Mojo Printing (2020)
+- Mojo Printing (2020, 2021)
 - Revolution Print & Packaging (2020) 
+- Utah First Title (2021)
 
 ## From GLAAD: 10 Ways to Be an Ally & a Friend
 
