@@ -33,14 +33,15 @@ This list is for our local Utah County & south Salt Lake County LGBTQQIPPA+ teen
 - [Utah Pride Center Youth](https://utahpridecenter.org/youth-programs/) 
 - [Encircle](https://encircletogether.org/online)
 - [HRC Direct Online and Phone Support Services for LGBTQ Youth](https://www.hrc.org/resources/direct-online-and-phone-support-services-for-lgbtq-youth) 
-- [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)! Teens (ages 13-19), Black Trans and Non-Binary Teen Group, Pre-Teens (ages 10-12), National Parent Support Group, and [so many more](https://www.genderspectrum.org/articles/blog-covid-resources). 
-- [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
-- [QChat Space](https://www.lgbtcenters.org/Q-Chat-Space), live, chat-based, professionally facilitated, online support and discussion groups for LGBTQ+ teens 13-19
+- [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)  
+- [GLBT National Youth Talkline](https://www.glbtonline.org)   
+- [QChat Space](https://www.lgbtcenters.org/Q-Chat-Space) 
 - TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
 - [SafeUT](https://safeut.med.utah.edu)
-- Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
+- Other help? One place to start is [Utah211](https://211utah.org). 
 - Concerned about someone in crisis? [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention) 
-#mentalhealthmatters #pandemicmentalhealth #lgbtqmentalhealth #mentalhealthawareness #lgbtq #bornperfect #equalitymatters #accelerateacceptance #prideeverywhere
+
+#mentalhealthmatters #lgbtqmentalhealth #mentalhealthawareness #lgbtq #bornperfect #equalitymatters #accelerateacceptance #prideeverywhere
 
  
 ## 🏳️‍🌈 Local Teen & Family Support
@@ -92,6 +93,8 @@ List under construction...
 - TrevorText, text START to 678678 (confidential text message with a counselor through The Trevor Project)
 - [University of Utah Transgender Health Program (SLC)](http://healthcare.utah.edu/transgender-health) 
 - [Wasatch Behavioral Health (Provo)](https://www.wasatch.org)
+
+[Transgender/Non-Binary Resources in Utah](https://docs.google.com/spreadsheets/d/1kQYuPvZt4YCQhYqsrXIZ3JsT3K5gAqNxfnf-hfjgPlA/edit#gid=1608475125) (This google spreadsheet is full of wonderful resources! Everything from voice coaching to makeup tutorials to transition service providers.)
 
 
 ## 🏳️‍🌈 Help for School Clubs
@@ -170,6 +173,7 @@ Introduce yourself with your pronouns to your students and coworkers! Idea: Put 
 - [Family Acceptance Project](https://familyproject.sfsu.edu) at San Francisco State University 
 - [Our Children: Questions and Answers for Families of Lesbian, Gay, Bisexual, Transgender, Gender-Expansive and Queer Youth and Adults](https://pflag.org/resource/our-children), from PFLAG 
 - [Parents and Family](https://www.genderspectrum.org/audiences/parents-and-family) by Gender Spectrum 
+- [Transgender/Non-Binary Resources in Utah](https://docs.google.com/spreadsheets/d/1kQYuPvZt4YCQhYqsrXIZ3JsT3K5gAqNxfnf-hfjgPlA/edit#gid=1608475125)  
 - [Youth Laws (equality)](https://www.equalityutah.org/youth-laws) via Equality Utah, from the State Equality Index and compiled by the Human Rights Campaign Foundation and the Equality Federation Institute
 
 
