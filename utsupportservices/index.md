@@ -25,6 +25,7 @@ title: Utah Support & Services
 - [Children's Service Society of Utah](https://cssutah.org)
 - [Creating Community (Weber/Davis county)](https://www.facebook.com/MusicFan7737)
 - [GEM Stories Gender Expansive Mormons](https://genderexpansivemormons.tumblr.com/) 
+- [LGBTQ Workplace](www.lgbtqworkplace.com) diversity, equity & inclusion workplace trainings 
 - [Logan Pride Festival](https://www.facebook.com/loganprideUT/)
 - [Love Loud](https://loveloudfest.com/foundation)- [National Center for Transgender Equality - Utah, ID Docs & Name Change Laws](https://transequality.org/documents/state/utah)
 - [Project Rainbow](https://www.projectrainbowutah.org) 
