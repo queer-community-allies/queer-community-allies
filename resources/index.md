@@ -35,23 +35,22 @@ This list is for our local Utah County & south Salt Lake County LGBTQQIPPA+ teen
 - [Gender Spectrum has online groups](https://www.genderspectrum.org/articles/gender-spectrum-groups)! Teens (ages 13-19), Black Trans and Non-Binary Teen Group, Pre-Teens (ages 10-12), National Parent Support Group, and [so many more](https://www.genderspectrum.org/articles/blog-covid-resources). 
 - [GLBT National Youth Talkline](https://www.glbtonline.org) provides telephone, online, and private one-to-one chat and email peer support. This includes weekly youth chat rooms and IM with a peer support volunteer. 
 - [QChat Space](https://www.lgbtcenters.org/Q-Chat-Space), live, chat-based, professionally facilitated, online support and discussion groups for LGBTQ+ teens 13-19
-- [Utah Pride Center Youth online support groups](https://utahpridecenter.org/programs/youth-family-programs/) for ages 10-14 and 14-20. Email youth(at)utahpridecenter(dot)org for more.  
-- [Encircle](https://encircletogether.org) is doing online group meets!  
+- [Utah Pride Center Youth](https://utahpridecenter.org/youth-programs/) is currently all virtual. 
+- [Encircle](https://encircletogether.org/online) is still online  
+
+A few more resources: 
 - TrevorText, confidential text message with a Trevor counselor, text START to 678678. 
 - [SafeUT](https://safeut.med.utah.edu)
 - Other help? Domestic Abuse? Housing? Legal? Food? One place to start is [Utah211](https://211utah.org). 
-
-If you or someone you know is in crisis call the National Suicide Prevention Lifeline at 1-800-273-8255 or text CONNECT to 741741 for the National Crisis Text Line. More at [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). #mentalhealthmatters #pandemicmentalhealth #lgbtqmentalhealth #mentalhealthawareness #suicideprevention #lgbtq #bornperfect #equalitymatters #accelerateacceptance #prideeverywhere
+- Concerned about someone in crisis? [Utah Pride Center Suicide Prevention](https://utahpridecenter.org/prevention). 
+#mentalhealthmatters #pandemicmentalhealth #lgbtqmentalhealth #mentalhealthawareness #lgbtq #bornperfect #equalitymatters #accelerateacceptance #prideeverywhere
 
  
 ## 🏳️‍🌈 Local Teen & Family Support
+Due to the global COVID pandemic, all current local support has paused or moved online. 
 
-- [Encircle (Provo)](www.EncircleTogether.org)  
-- [Dragon Dads](https://www.facebook.com/DragonDads/)  
-- [Genderbands (Orem)](https://www.genderbands.org)  
-- [Mama Dragons](https://mamadragons.org) 
-- [PFLAG Provo/Utah County](https://pflag.org/chapter/pflag-provoutah-county)
-- [Queer Meals (Provo)](http://queermeals.com)  
+- [Encircle (SLC, Provo)](www.EncircleTogether.org) 
+- [Pride Center Youth (SLC)](https://utahpridecenter.org/youth-programs/) 
 
 
 ## 🏳️‍🌈 [Additional Utah Services & Organizations](/utsupportservices)
