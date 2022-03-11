@@ -83,6 +83,7 @@ List under construction...
 - [Advanced Awareness Counseling (Provo, Sandy)](https://www.advancedawarenesscounseling.com) 
 - [Celebrate Therapy(Provo)](https://www.celebratetherapy.org)
 - [Expressions Counseling Center (Lehi)](https://expressionscounselingcenter.com)
+- [Family Solutions Counseling](https://www.familysolutionsutah.org) 
 - [Flourish Therapy (Provo)](https://flourishtherapy.org)
 - [Healing Steps Counseling (Lehi)](http://www.healingstepsutah.com/)
 - [LGBTQ-Affirmative Psychotherapist Guild of Utah](http://lgbtqtherapists.com/directory.html), Utah-wide directory searchable by location, services, & insurance 
