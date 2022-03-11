@@ -4,7 +4,9 @@ menu-title: Resources List
 ---
 
 ## For Local Teens, By Local Queers+Allies
-This list is for our local Utah County & south Salt Lake County LGBTQQIPPA+ teens and their families.   
+This list is for our local Utah County & south Salt Lake County LGBTQQIPPA+ teens and their families. 
+
+Local: within Alpine, Provo, and Jordan school districts. (Cities: Alpine, American Fork, Bluffdale, Cedar Fort, Cedar Hills, Copperton, Eagle Mountain, Fairfield, Herriman, Highland, Lehi, Lindon, Orem, Pleasant Grove, Provo, Riverton, Saratoga Springs, South Jordan, Vineyard, and West Jordan.) 
 
 - [Virtual community](#virtual-community)
 - [Local Teen & Family Support](#️-local-teen--family-support)
@@ -53,8 +55,8 @@ Due to the global COVID pandemic, most current local support and community event
 - [Local high school GSA clubs](️/resources/gsas.html)
 
 
-## 🏳️‍🌈 [Additional Utah Services & Organizations](/utsupportservices)
-
+## 🏳️‍🌈 Additional Utah Services & Organizations
+[Socializing, events, support, organizations, providers and more across Utah.](/utsupportservices)
 
 ## 🏳️‍🌈 Teams, Interest Groups & Hangout Spots  
 
