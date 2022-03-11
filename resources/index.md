@@ -53,7 +53,7 @@ Due to the global COVID pandemic, most current local support has paused or moved
 - [Rainbow Mutual](https://www.facebook.com/RainbowMutual/)   
 - [Encircle (SLC, Provo) currently all virutal](www.EncircleTogether.org) 
 - [Pride Center Youth (SLC) currently all virtual](https://utahpridecenter.org/youth-programs/) 
-- [Local high school GSA clubs](️#️-help-for-school-clubs)
+- [Local high school GSA clubs](️https://queercommunityallies.org/resources/gsas.html)
 
 
 ## 🏳️‍🌈 [Additional Utah Services & Organizations](/utsupportservices)
