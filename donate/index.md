@@ -17,18 +17,22 @@ Shop our Amazon Smile [charity wishlist](https://smile.amazon.com/hz/charitylist
 
 Our EIN is `84-2519026`
 
-## Volunteer board of directors 
+## Volunteers & board of directors 
 
-- We do the work! Meet, discuss, plan, coordinate, & visit. 
-- We serve 1-year terms, vote on important decisions and maintain our bylaws. 
+- We're very collaborative!
+- We serve 1-year terms. 
 - We currently have 5 board members with capacity for 10. 
-- Some of our board members hold an office (president, vice president, secretary, treasurer). We trade off other assignments (website, social media, visiting schools, digital accounts, GSA advisor contact, paperwork, etc) based on who has availability and interest in the moment. We're very collaborative! 
+- We meet, discuss, plan, & coordinate. 
+- We spend time doing paperwork to keep our organization registered with the state, and we maintain all bookkeeping and banking paperwork. We run our website, social media, digital accounts, and keep in contact with teachers, advisors, and organizations in our area. 
 - We meet at least every three months and often every month, hour tops. We also email and text each other. 
-- We each spend two or three hours a month on QCA work. 
+- We each spend two or three hours a month on QCA work. Sometimes more at the start of the school year. 
 - All board members must be 18+ and able to pass a background check.
 - As we're a locally-focused organization, board members should live and/or work in our area pocket, Utah County or south Salt Lake County.  
  
 Interested? [Email](mailto:contact@queercommunityallies.org) us! (contact@queercommunityallies.org)
+
+If you still want to volunteer your time and energy, but don't have capacity to be involved in the heavy lifting of our organization, please reach out and ask how you can help in other ways! Examples: committing to visiting your local GSA monthly, helping at our table when we're invited to community events, soliciting donations in your circles. 
+
 
 ## #AdoptaGSA 
 
