@@ -12,10 +12,9 @@ We are often asked why start an organization at all, when Salt Lake City and Pro
 We are also asked why we chose the word "Queer" for our name. Like many, we belong to a younger generation that has reclaimed the term and love it for encompassing evolving self-definition/self-exploration and as an umbrella term for not hetersexual-heteroromantic. Also, a lot of the teens we know use it, so it's a way to resonate with them. We know many people hate the word, associate it with slang or derision, and/or associate it with certain political positions or cultural backgrounds. There's definitely a broad range of approaches to the word. We love this article that shares many perspectives on the term Queer. [Them.com What Does "Queer Mean? 9 LGBTQ+ People Explain How They Love, Hate, And Understand The Word "Queer"](https://www.them.us/story/what-does-queer-mean?fbclid=IwAR2LvTTiZQzdT2C8sMjgEni4XBPKtmnjWGJaEgchX4gDFM1HIwrNQ5zgUf8) 
 
 Our 2020-2021 Board
-- Christine Hubbard (she/her/hers)
-- Chanelle Christensen (she/her/hers)
-- Lacy Fife (she/her/hers)
-- Sarah DeLong (she/her/hers or they/them/theirs)
+- Christine Hubbard (she/her/hers), President
+- Chanelle Christensen (she/her/hers), Vice President
+- Lacy Fife (she/her/hers), Secretary 
 - Dave DeLong (he/him/his)
 
 Contact us if you want to get involved! We are currently a tiny organization with limited volunteer opportunities aside from joining the board to organize efforts. Due to the COVID-19 epidemic, our service opportunities are even more limited. We welcome adults 18+ who can pass a background check and who are creative and willing to devote a few hours each month. 
