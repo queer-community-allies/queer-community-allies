@@ -50,7 +50,7 @@ Local: within Alpine, Provo, and Jordan school districts. (Cities: Alpine, Ameri
 Due to the global COVID pandemic, most current local support and community events have paused or moved online. 
 
 - [Rainbow Mutual](https://www.facebook.com/RainbowMutual/)   
-- [Encircle (SLC, Provo) currently all virutal](www.EncircleTogether.org) 
+- [Encircle (SLC, Provo) currently all virutal](https://encircletogether.org/provo) 
 - [Pride Center Youth (SLC) currently all virtual](https://utahpridecenter.org/youth-programs/) 
 - [Local high school GSA clubs](️/resources/gsas.html)
 
